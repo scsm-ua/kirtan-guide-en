@@ -1,4 +1,13 @@
 {
-    "name": "KIRTAN GUIDE of the Śrī Chaitanya Sāraswat Math Chiang Mai English Edition",
-    "slug": "en"
+    "title": "Kirtan Guide",
+    "subtitle": "of the Śrī Chaitanya Sāraswat Math, Chiang Mai English Edition",
+    "slug": "en",
+    "i18n": {
+        "Share song": "Share song",
+        "Share": "Share",
+        "Copy page address": "Copy page address",
+        "Contents": "Contents",
+        "Index": "Index",
+        "Vaishnava Songbook": "Vaishnava Songbook"
+    }
 }
