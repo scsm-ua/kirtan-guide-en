@@ -14,6 +14,7 @@
 - [Śrī-Śrī-Guru-Gaurāṅga-Rādhā-Madana-Mohanjīu Kolkata, Sree Chaitanya Sāraswata Krishnanushilana Sangha](songs/jayatam-suratau-pangor.md)
 - [Śrī-Śrī-Guru-Gaurāṅga-Gāndharvā-Govindasundarjīu Nabadwīp, Śrī Chaitanya Sāraswat Maṭh](songs/divyad-vrindaranya-kalpa-drumadhah.md)
 - [Śrī-Śrī-Guru-Gaurāṅga-Rādhā-Gopīnāthjīu Hāpāniyā, Śrī Chaitanya Sāraswat Ashram](songs/shriman-rasa-rasarambhi.md)
+- [vṛndāyai tulasī-devyai](songs/vrindayai-tulasi-devyai.md)
 - [Prayers to the Vaiṣṇavas](songs/sakala-vaishnava-pade-mora-namaskara.md)
 - [Praṇām Mantra to Śrīla Swāmī Mahārāj](songs/namah-om-vishnupadaya-krishna.md)
 - [The Glory of the Śrī Chaitanya Sāraswat Maṭh](songs/shrimach-chaitanya-sarasvata-mathavara-udgita-kirtir.md)
