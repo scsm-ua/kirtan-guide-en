@@ -6,7 +6,7 @@
 
     jaya jaya rādhā-kṛṣṇa jugala-milan ārati karaye lalitādi sakhī-goṇ
 
-All glories, all glories to the meeting of the transcen- dental couple, Śrī Śrī Rādhā Krishna. The gopīs headed by Lalitā devī perform the ceremony of their worship.
+All glories, all glories to the meeting of the transcendental couple, Śrī Śrī Rādhā Krishna. The gopīs headed by Lalitā devī perform the ceremony of their worship.
 
 #### 2
 
@@ -30,11 +30,11 @@ Her various ornaments sparkle and Her effulgent face charms the heart of Lord Kr
 
     viśākhādi sakhī-goṇ nānā rāge gāya priya-narma-sakhī jata chāmāra ḍhulāya
 
-Viśākhā and the other girls sing songs in various tunes and moods as Krishna’s intimate playful girlfriends fan the di- vine couple with whisks.
+Viśākhā and the other girls sing songs in various tunes and moods as Krishna’s intimate playful girlfriends fan the divine couple with whisks.
 
 #### 6
 
     śrī-rādhā-mādhava-pada-sarasija-āśe bhakativinoda sakhī-pade sukhe bhāse
 
-Yearning to attain the lotus feet of Śrī Śrī Rādhā-Krish- na, Bhakti Vinod floats in happiness at the gopīs’ feet.
+Yearning to attain the lotus feet of Śrī Śrī Rādhā-Krishna, Bhakti Vinod floats in happiness at the gopīs’ feet.
 

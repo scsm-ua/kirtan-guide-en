@@ -9,7 +9,7 @@
     sujanārvuda-rādhita-pāda-yugaṁ
     yuga-dharma-dhurandhara-pātra-varam varadābhaya-dāyaka-pūjya-padaṁ praṇamāmi sadā prabhupāda-padam
 
-His lotus feet are served in devotion by multitudes of high, virtuous souls; he is the establisher of the religion of the age as he is the presiding monarch of the Viśva- Vaiṣṇava-Rāja-Sabhā—the universal society of the pure devotees that are the true ‘kings’ or guides of all; and he is the fulfiller of the most cherished desires of those who dispel fear (for all souls). I make my obeisance unto the lotus feet of that illustrious great soul, worshipable by one and all— perpetually do I make my obeisance unto the radiance emanating from the toenails of the holy feet of my Lord.
+His lotus feet are served in devotion by multitudes of high, virtuous souls; he is the establisher of the religion of the age as he is the presiding monarch of the ViśvaVaiṣṇava-Rāja-Sabhā—the universal society of the pure devotees that are the true ‘kings’ or guides of all; and he is the fulfiller of the most cherished desires of those who dispel fear (for all souls). I make my obeisance unto the lotus feet of that illustrious great soul, worshipable by one and all— perpetually do I make my obeisance unto the radiance emanating from the toenails of the holy feet of my Lord.
 
 #### 2
 
@@ -41,37 +41,37 @@ He has revealed the vast, magnificent beauty of Śrī Gaura Dhām; he has broadc
 
     chira-gaura-janāśraya-viśva-guruṁ guru-gaura-kiśoraka-dāsya-param paramādṛta-bhaktivinoda-padaṁ praṇamāmi sadā prabhupāda-padam
 
-He is the eternal shelter and the Universal Guru for the souls surrendered unto Śrī Gaurāṅga. Absorbed in the service of his Gurudev, Śrī Gaura Kiśora, he whole- heartedly adores Śrī Bhakti Vinod Ṭhākur. I make my obeisance unto him; perpetually do I make my obeisance unto the effulgence emanating from the toenails of the holy feet of my Lord.
+He is the eternal shelter and the Universal Guru for the souls surrendered unto Śrī Gaurāṅga. Absorbed in the service of his Gurudev, Śrī Gaura Kiśora, he wholeheartedly adores Śrī Bhakti Vinod Ṭhākur. I make my obeisance unto him; perpetually do I make my obeisance unto the effulgence emanating from the toenails of the holy feet of my Lord.
 
 #### 7
 
     raghu-rūpa-sanātana-kīrti-dharaṁ dharaṇī-tala-kīrtita-jīva-kavim kavirāja-narottama-sakhya-padaṁ praṇamāmi sadā prabhupāda-padam
 
-He is the illustrious personality to raise the flag that sings the glory of Śrī Rūpa, Śrī Sanātan, and Śrī Raghunāth. His glory is sung throughout the world as non-different from the powerful personality of brilliant erudition, Śrī Jīva. And he has won the renown of be- ing one with the hearts of Śrīla Krishna Dās Kavirāj and Ṭhākur Narottam. I make my obeisance unto him; per- petually do I bow down to the brilliance emanating from the toenails of the holy feet of my Divine Master.
+He is the illustrious personality to raise the flag that sings the glory of Śrī Rūpa, Śrī Sanātan, and Śrī Raghunāth. His glory is sung throughout the world as non-different from the powerful personality of brilliant erudition, Śrī Jīva. And he has won the renown of being one with the hearts of Śrīla Krishna Dās Kavirāj and Ṭhākur Narottam. I make my obeisance unto him; perpetually do I bow down to the brilliance emanating from the toenails of the holy feet of my Divine Master.
 
 #### 8
 
     kṛpayā hari-kīrtana mūrti-dharaṁ dharaṇī-bhara-hāraka-gaura-janam janakādhika-vatsala-snigdha-padaṁ praṇamāmi sadā prabhupāda-padam
 
-Bestowing his grace upon all souls, he is Hari- *kīr- tan* incarnate. As the associate of Śrī Gaura, he relieves Mother Earth of the burden of offences committed upon her. And he is so gracious that his endearance of all be- ings excels that of even a father. I make my obeisance unto him—the mine of all these qualities; perpetually do I bow down to the effulgence emanating from the toe- nails of the holy feet of my Divine Master.
+Bestowing his grace upon all souls, he is Hari*kīrtan* incarnate. As the associate of Śrī Gaura, he relieves Mother Earth of the burden of offences committed upon her. And he is so gracious that his endearance of all beings excels that of even a father. I make my obeisance unto him—the mine of all these qualities; perpetually do I bow down to the effulgence emanating from the toenails of the holy feet of my Divine Master.
 śaraṇāgata-kiṅkara-kalpa-taruṁ
 
 #### 9
 
     taru-dhik-kṛta dhīra vadānya varam varadendra-gaṇārchita-divya-padaṁ praṇamāmi sadā prabhupāda-padam
 
-Like a wish-fulfilling tree for his surrendered ser- vitors (he fulfills their heart’s aspirations), even a tree is shamed by his magnanimity and forbearance. And great personalities who are competent to confer boons—they, too, worship his lotus feet. I make my obeisance unto him; perpetually do I bow down to the radiance emanating from the toenails of the holy feet of my Divine Master.
+Like a wish-fulfilling tree for his surrendered servitors (he fulfills their heart’s aspirations), even a tree is shamed by his magnanimity and forbearance. And great personalities who are competent to confer boons—they, too, worship his lotus feet. I make my obeisance unto him; perpetually do I bow down to the radiance emanating from the toenails of the holy feet of my Divine Master.
 
 #### 10
 
     parahaṁsa-varaṁ paramārtha-patiṁ patitodharaṇe kṛta-veśa-yatim
     yati-rāja-gaṇaiḥ parisevya-padaṁ praṇamāmi sadā prabhupāda-padam
 
-The crown-jewel of the *paramahaṁsas* , the Prince of the treasure of the supreme perfection of life, Śrī Krish- na- *prema* , he accepted the robes of a mendicant *sanny- āsī* just to deliver the fallen souls. The topmost tridaṇḍī *sannyāsīs* attend his lotus feet. I make my obeisance unto him; perpetually do I bow down to the effulgence ema- nating from the toenails of the holy feet of my Divine Master.
+The crown-jewel of the *paramahaṁsas* , the Prince of the treasure of the supreme perfection of life, Śrī Krishna*prema* , he accepted the robes of a mendicant *sannyāsī* just to deliver the fallen souls. The topmost tridaṇḍī *sannyāsīs* attend his lotus feet. I make my obeisance unto him; perpetually do I bow down to the effulgence emanating from the toenails of the holy feet of my Divine Master.
 
 #### 11
 
     vṛṣabhānu-sutā-dayitānucharaṁ charaṇāśrita-reṇu-dharas tam aham mahad-adbhuta-pāvana-śakti-padaṁ praṇamāmi sadā prabhupāda-padam
 
-He is the dearmost intimate follower of the Divine Daughter of Śrī Vṛṣabhānu, and I know myself as the most fortunate by taking the dust of his holy feet upon my head. I make my obeisance unto his invincible, won- drously purifying lotus feet—perpetually do I bow to the brilliance emanating from the toenails of the holy feet of my Divine Master.
+He is the dearmost intimate follower of the Divine Daughter of Śrī Vṛṣabhānu, and I know myself as the most fortunate by taking the dust of his holy feet upon my head. I make my obeisance unto his invincible, wondrously purifying lotus feet—perpetually do I bow to the brilliance emanating from the toenails of the holy feet of my Divine Master.
 

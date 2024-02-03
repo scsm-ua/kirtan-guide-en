@@ -7,14 +7,14 @@
     bhajahu̐ re mana śrī-nanda-nandana abhaya-charaṇāravinda re
     dūrlabha mānava janama sat-saṅge taroho e bhava-sindhu re
 
-O mind, just worship the lotus feet of the son of Nanda, which make one fearless. Having obtained this rare human birth, cross over this ocean of worldly exis- tence through the association of saintly persons.
+O mind, just worship the lotus feet of the son of Nanda, which make one fearless. Having obtained this rare human birth, cross over this ocean of worldly existence through the association of saintly persons.
 
 #### 2
 
     śīta ātapa        bāta bariṣaṇa e dina jāminī jāgi re
     biphale sevinu      kṛpaṇa durajana chapala sukha-laba lāgi’ re
 
-Both in the day and at night I remain sleepless, suffering the pains of the heat and cold, the wind and the rain. For a fraction of flickering happiness I have useless- ly served wicked and miserly men.
+Both in the day and at night I remain sleepless, suffering the pains of the heat and cold, the wind and the rain. For a fraction of flickering happiness I have uselessly served wicked and miserly men.
 
 #### 3
 
@@ -28,7 +28,7 @@ What assurance of real happiness is there in all of one’s wealth, youthfulness
     śravaṇa, kīrtana, smaraṇa, vandana, pāda-sevana, dāsya re
     pūjana, sakhī-jana,   ātma-nivedana govinda-dāsa-abhilāṣa re
 
-It is the desire and great longing of Govinda dās to engage himself in the nine processes of bhakti, namely hearing the glories of Lord Hari and chanting those glo- ries, constantly remembering Him and offering prayers to Him, serving the Lord’s lotus feet, serving the Supreme
-170   Lord as a servant, worshipping Him with flowers and incense and so forth, serving Him as a friend,
+It is the desire and great longing of Govinda dās to engage himself in the nine processes of bhakti, namely hearing the glories of Lord Hari and chanting those glories, constantly remembering Him and offering prayers to Him, serving the Lord’s lotus feet, serving the Supreme
+Lord as a servant, worshipping Him with flowers and incense and so forth, serving Him as a friend,
 and completely offering the Lord one’s very self.
 

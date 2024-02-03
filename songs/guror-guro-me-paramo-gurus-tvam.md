@@ -9,7 +9,7 @@
     guror guro me paramo gurus tvaṁ vareṇya! gaurāṅga-gaṇāgragaṇye prasīda bhṛtye dayitāśrite te
     namo namo gaura-kiśora tubhyam
 
-Oh Divine Master of my Divine Master, my most venerable preceptor, you are supremely worshippable in the group of the foremost associates of Śrī Gaurāṅ- ga. May you be gracious upon this servitor surrendered unto your loving servitor (Dayita Dās). Oh Gaura Kiśo- ra, again and again do I make my obeisance unto you.
+Oh Divine Master of my Divine Master, my most venerable preceptor, you are supremely worshippable in the group of the foremost associates of Śrī Gaurāṅga. May you be gracious upon this servitor surrendered unto your loving servitor (Dayita Dās). Oh Gaura Kiśora, again and again do I make my obeisance unto you.
 
 #### 2
 
@@ -22,14 +22,14 @@ Oh worshipful one, you alone revealed my Lord and Master, who is renowned throug
 
     kvachid-vrajāraṇya-vivikta-vāsī hṛdi vraja-dvandva-raho-vilāsī bahir virāgī tv avadhūta-veṣī namo namo gaura-kiśora tubhyam
 
-Living in solitude at Vraja Dhām, your heart was absorbed in the most secret Pastimes of the Divine Youth- ful Couple of Vraja, whilst externally you maintained the strictures of a renunciate; and sometimes you appeared to transcend all recognised strictures. Oh Gaura Kiśora, again and again do I make my obeisance unto you.
+Living in solitude at Vraja Dhām, your heart was absorbed in the most secret Pastimes of the Divine Youthful Couple of Vraja, whilst externally you maintained the strictures of a renunciate; and sometimes you appeared to transcend all recognised strictures. Oh Gaura Kiśora, again and again do I make my obeisance unto you.
 
 #### 4
 
     kvachit punar gaura-vanāntachārī surāpagā-tīra-rajo-vihārī
     pavitra-kaupīna-karaṅka-dhārī namo namo gaura-kiśora tubhyam
 
-Sometimes you roam about the edge of Gaurava- na (the boundary of Śrī Nabadwīp Dhām), wandering along the beach near the banks of the Gaṅgā. Oh Gaura Kiśora, who dons the holy loin-cloth and carries the men- dicant’s water-pot, again and again do I make my obei- sance unto you.
+Sometimes you roam about the edge of Gauravana (the boundary of Śrī Nabadwīp Dhām), wandering along the beach near the banks of the Gaṅgā. Oh Gaura Kiśora, who dons the holy loin-cloth and carries the mendicant’s water-pot, again and again do I make my obeisance unto you.
 
 #### 5
 
@@ -42,7 +42,7 @@ Ever singing the Holy Name of Śrī Hari with great ecstasy and accepting alms f
     kvachid-rudantañ cha hasan naṭantaṁ nijeṣṭa-deva-praṇayābhibhūtam namanti gāyantam alaṁ janā tvāṁ namo namo gaura-kiśora tubhyam
 
 Becoming overwhelmed with love for your worshipful Lord, sometimes you dance, sometimes
-you cry, sometimes you laugh; and again, you sing aloud. The people profusely offer their respects unto you, Oh Gaura Kiśora, and again and again do I make my obei- sance unto you.
+you cry, sometimes you laugh; and again, you sing aloud. The people profusely offer their respects unto you, Oh Gaura Kiśora, and again and again do I make my obeisance unto you.
 
 #### 7
 
@@ -56,13 +56,13 @@ Oh friend of the glorious Ṭhākur Bhakti Vinod, Oh matchless ocean of the nect
     samāpya rādhā-vratam uttamaṁ tvam avāpya dāmodara-jāgarāham
     gato ’si rādhādara-sakhya-riddhiṁ namo namo gaura-kiśora tubhyam
 
-Completing the great holy vow of Ūrja-vrata, you selected the day of the awakening of Śrī Dāmodar to achieve the cherished treasure of your internal identi- ty as a Sakhī devoted to the service of Śrī Rādhikā. Oh Gaura-Kiśora, again and again do I make my obeisance unto you.
+Completing the great holy vow of Ūrja-vrata, you selected the day of the awakening of Śrī Dāmodar to achieve the cherished treasure of your internal identity as a Sakhī devoted to the service of Śrī Rādhikā. Oh Gaura-Kiśora, again and again do I make my obeisance unto you.
 
 #### 9
 
     vihāya saṅgaṁ kuliyā-layānāṁ pragṛhya sevāṁ dayitānugasya vibhāsi māyāpura-mandira-stho namo namo gaura-kiśora tubhyam
 
-Forsaking the company of the residents of Kuli- yā town to accept the service of your servitor Śrī Dayita Dās, your divine presence is now found in a holy temple at Śrī Dhām Māyāpur. Oh Gaura Kiśora, again and again do I make obeisance unto you.
+Forsaking the company of the residents of Kuliyā town to accept the service of your servitor Śrī Dayita Dās, your divine presence is now found in a holy temple at Śrī Dhām Māyāpur. Oh Gaura Kiśora, again and again do I make obeisance unto you.
 
 #### 10
 

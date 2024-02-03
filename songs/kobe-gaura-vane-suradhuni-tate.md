@@ -7,7 +7,7 @@
     kobe gaura-vane, suradhunī-taṭe, ‘hā rādhe hā kṛṣṇa’ bo’le
     kāṅdiyā beḍābo, deho-sukha chāḍi’, nānā latā-taru-tole
 
-O when, O when will this soul chant in Gaura-for- est on the Ganges banks the Holy Names “Rādhā,” and “Krishna” renouncing all the body’s joys and drenched with all the tears I’ve wept amidst the herbs, beneath a tree.
+O when, O when will this soul chant in Gaura-forest on the Ganges banks the Holy Names “Rādhā,” and “Krishna” renouncing all the body’s joys and drenched with all the tears I’ve wept amidst the herbs, beneath a tree.
 
 #### 2
 
@@ -28,5 +28,5 @@ And when will I bow down before a resident of the holy *dhām* and beg from him 
     gauḍa-vraja-bane,    bheda nā heribo, hoibo varaja-vāsī
     dhāmera svarūpa,    sphuribe nayane, hoibo rādhāra dāsī
 
-Then I shall see no difference between the forest of Gauḍa and Vraja, and I will be transformed into a res- ident of the *dhām* . The true nature of the Lord’s abode will manifest itself to my eyes, and I will become a maid- servant of Śrīmatī Rādhārāṇī.
+Then I shall see no difference between the forest of Gauḍa and Vraja, and I will be transformed into a resident of the *dhām* . The true nature of the Lord’s abode will manifest itself to my eyes, and I will become a maidservant of Śrīmatī Rādhārāṇī.
 

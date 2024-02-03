@@ -6,13 +6,13 @@
 
     jaya rādhe, jaya kṛṣṇa, jaya vṛndāvan śrī-govinda, gopīnātha, madana-mohan
 
-All glories to Rādha and Krishna and the divine forest of Vṛndāvan. All glories to the three presiding Deities of Vṛndāvan–Śrī Govinda, Gopīnāth, and Mad- ana-Mohan.
+All glories to Rādha and Krishna and the divine forest of Vṛndāvan. All glories to the three presiding Deities of Vṛndāvan–Śrī Govinda, Gopīnāth, and Madana-Mohan.
 
 #### 2
 
     śyāma-kuṇḍa, rādhā-kuṇḍa, giri-govardhan kālindī yamunā jaya, jaya mahāvan
 
-All glories to Śyāma-kuṇḍa, Rādhā-kuṇḍa, Gov- ardhan Hill, and the Yamunā River (Kālindī). All glories to the great forest known as Mahāvan, where Krishna and Balarām displayed all of Their childhood Pastimes.
+All glories to Śyāma-kuṇḍa, Rādhā-kuṇḍa, Govardhan Hill, and the Yamunā River (Kālindī). All glories to the great forest known as Mahāvan, where Krishna and Balarām displayed all of Their childhood Pastimes.
 
 #### 3
 
@@ -24,13 +24,13 @@ All glories to Keśī-ghāṭa, where Krishna killed the Keśī demon. All glori
 
     śrī-nanda-yaśodā jaya, jaya gopa-gaṇ śrīdāmādi jaya, jaya dhenu-vatsa-gaṇ
 
-All glories to Krishna’s divine father and mother, Nanda and Yaśodā. All glories to the cowherd boys, head- ed by Śrīdāmā, the older brother of Śrīmatī Rādhārāṇī and Anaṅga Mañjarī. All glories to the cows and calves of Vraja.
+All glories to Krishna’s divine father and mother, Nanda and Yaśodā. All glories to the cowherd boys, headed by Śrīdāmā, the older brother of Śrīmatī Rādhārāṇī and Anaṅga Mañjarī. All glories to the cows and calves of Vraja.
 
 #### 5
 
     jaya vṛṣabhānu, jaya kīrtidā sundarī jaya paurṇamāsī, jaya ābhīra-nāgarī
 
-All glories to Rādhā’s divine father and moth- er, Vṛṣabhānu and the beautiful Kīrtidā. All glories to
+All glories to Rādhā’s divine father and mother, Vṛṣabhānu and the beautiful Kīrtidā. All glories to
 Paurṇamāsī, the mother of Sāndīpani Muni, grandmother of Madhumaṅgal and Nāndīmukhī,
 and beloved disciple of Devarṣi Nārada. All glories to the young cowherd maidens of Vraja.
 
@@ -44,13 +44,13 @@ All glories, all glories to Gopeśvara Shiva, who resides in Vṛndāvan in orde
 
     jaya rāma-ghāṭa, jaya rohiṇī-nandan jaya jaya vṛndāvana-vāsī jata jon
 
-All glories to Rāma-ghāṭa, where Lord Balarām performed His rāsa dance. All glories to Lord Balarām, the son of Rohiṇī. All glories, all glories to all of the res- idents of Vṛndāvan.
+All glories to Rāma-ghāṭa, where Lord Balarām performed His rāsa dance. All glories to Lord Balarām, the son of Rohiṇī. All glories, all glories to all of the residents of Vṛndāvan.
 
 #### 8
 
     jaya dvija-patnī, jaya nāga-konyā-goṇ bhaktite jā̐hārā pāilo govinda-charaṇ
 
-All glories to the wives of the proud Vedic *brāh- maṇs* . All glories to the wives of the Kālīya serpent. Through pure devotion they all obtained the lotus feet of Lord Govinda.
+All glories to the wives of the proud Vedic *brāhmaṇs* . All glories to the wives of the Kālīya serpent. Through pure devotion they all obtained the lotus feet of Lord Govinda.
 
 #### 9
 
@@ -62,11 +62,11 @@ All glories to the place where the rāsa dance of Śrī Krishna was performed. A
 
     jaya jayojvala-rasa sarva-rasa-sār parakīyā-bhāve jāhā vrajete prachār
 
-All glories, all glories to the mellow of conjugal love, which is the most excellent of all rasas and is prop- agated in Vraja by Śrī Krishna in the form of the divine *parakīyā-bhāva* [paramour love].
+All glories, all glories to the mellow of conjugal love, which is the most excellent of all rasas and is propagated in Vraja by Śrī Krishna in the form of the divine *parakīyā-bhāva* [paramour love].
 
 #### 11
 
     śrī-jāhnavā-pāda-padma koriyā smaraṇ dīna kṛṣṇadāsa kohe nāma-saṅkīrtan
 
-Remembering the lotus feet of Lord Nityānan- da’s consort, Śrī Jāhnavā Devī, this very fallen and lowly Krishnadās sings the saṅkīrtan of the Holy Name.
+Remembering the lotus feet of Lord Nityānanda’s consort, Śrī Jāhnavā Devī, this very fallen and lowly Krishnadās sings the saṅkīrtan of the Holy Name.
 

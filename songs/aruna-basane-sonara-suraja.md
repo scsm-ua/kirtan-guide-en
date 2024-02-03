@@ -39,14 +39,14 @@ they distribute Krishna’s Name.
     chaudikete dhvani   ki apūrva śuni bahujana ucharola
     hare kṛṣṇa rāma    nāma divya-dhāma hari hari hari bolo
 
-What a remarkable sound is heard in all directions bringing jubilation to all the people. The devotees chant the divine Names “Hare, Krishna, Rāma,” and the tran- scendental abode manifests. Chant Hari Hari Hari!
+What a remarkable sound is heard in all directions bringing jubilation to all the people. The devotees chant the divine Names “Hare, Krishna, Rāma,” and the transcendental abode manifests. Chant Hari Hari Hari!
 
 #### 6
 
     phālgunī pūrṇimā    hindola raṅgimā sujana-bhajana rāge
     saṅkīrtana sane  marama gahane nā jāni kibhāva jāge
 
-On His holy appearance day, the festival of Holly takes place. All the devotees are chanting as well as all the Hindus. No-one can understand the feeling and the substance that comes within the heart from that saṅkīr- tan.
+On His holy appearance day, the festival of Holly takes place. All the devotees are chanting as well as all the Hindus. No-one can understand the feeling and the substance that comes within the heart from that saṅkīrtan.
 
 #### 7
 
@@ -60,7 +60,7 @@ As the sunset approaches, the sun shines on the mountain illuminating it like it
     suvarṇa chandramā   paśiche nīlimā se nīla bilīna heme
     ithe kiba bhāya  sādhu-jana gāya kalaṅka nā rahe preme
 
-The blue sky is covered by the Golden Moon and when the devotees glorify the Lord with their discus- sions, no other conception or motive can exist other than Krishna consciousness. At that time, prema , divine love
+The blue sky is covered by the Golden Moon and when the devotees glorify the Lord with their discussions, no other conception or motive can exist other than Krishna consciousness. At that time, prema , divine love
 descends automatically without any impediment.
 
 #### 9
@@ -68,7 +68,7 @@ descends automatically without any impediment.
     mahājane bole      grahaṇera chole saṅge nāma saṅkīrtana
     gaurachandrodaya   pāpa rāhu kṣaya chandraśobhā prema dhana
 
-The great devotees say, take up your spiritual path with the congregational chanting of the Lord’s Holy Names. With the appearance of Śrī Gaurachandra, all sin- fulness is removed and everyone attains the treasure of love of Godhead.
+The great devotees say, take up your spiritual path with the congregational chanting of the Lord’s Holy Names. With the appearance of Śrī Gaurachandra, all sinfulness is removed and everyone attains the treasure of love of Godhead.
 
 #### 10
 

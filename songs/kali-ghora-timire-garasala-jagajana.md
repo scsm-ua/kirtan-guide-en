@@ -14,7 +14,7 @@ The people of this world have now been devoured by the dense darkness of this ag
     bhāi re bhāi!  gorā guṇa kohone nā jāya koto śata-ānana   koto chatur-ānana
     boroṇiyā ora nāhi pāya
 
-“O my brother! O my brother! No one has told you the glories of Lord Gaura. How great is Lord Brah- mā? How great is Lord Śeṣa? They cannot eclipse the greatness of Lord Gaura.
+“O my brother! O my brother! No one has told you the glories of Lord Gaura. How great is Lord Brahmā? How great is Lord Śeṣa? They cannot eclipse the greatness of Lord Gaura.
 
 #### 3
 

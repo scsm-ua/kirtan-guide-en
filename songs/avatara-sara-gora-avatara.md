@@ -35,5 +35,5 @@ Admitting defeat, wasted and worn out, I await the snake of death. Declaring it 
     saṁsāra bhajili śrī-gaurāṅga bhulili nā śunili sādhura kathā
     iha-parakāla     dukāla khoyāli (mana) khāili āpana māthā
 
-Worshipping my family and my material life, I for- got Lord Gaurāṅga and didn’t listen to the instructions of the saints. Now in my final days, I realise I have died twice, for not only am I leaving this mortal body, but I am also dead while living, having wasted my life in material indulgence.
+Worshipping my family and my material life, I forgot Lord Gaurāṅga and didn’t listen to the instructions of the saints. Now in my final days, I realise I have died twice, for not only am I leaving this mortal body, but I am also dead while living, having wasted my life in material indulgence.
 

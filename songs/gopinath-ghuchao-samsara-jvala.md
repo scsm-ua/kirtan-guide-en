@@ -7,28 +7,28 @@
     gopīnāth,  ghuchāo saṁsāra-jvālā avidyā-jātanā,    āro nāhi sahe,
     janama-maraṇa-mālā
 
-Oh Gopīnāth, please remove the torment of world- ly existence. I can no longer tolerate the pain of igno- rance and the repeated succession of rebirth and death.
+Oh Gopīnāth, please remove the torment of worldly existence. I can no longer tolerate the pain of ignorance and the repeated succession of rebirth and death.
 
 #### 2
 
     gopīnāth,  āmi to kāmera dāsa viṣoya-vāsanā,    jāgiche hṛdoye,
     phāṅdiche karama phāṅsa
 
-Oh Gopīnāth, indeed I am a servant of lust. World- ly desires are awakening in my heart, and thus the noose of fruitive work is beginning to tighten.
+Oh Gopīnāth, indeed I am a servant of lust. Worldly desires are awakening in my heart, and thus the noose of fruitive work is beginning to tighten.
 
 #### 3
 
     gopīnāth,  kobe vā jāgibo āmi kāma-rūpa ari,     dūre teyāgibo,
     hṛdoye sphuribe tumi
 
-Oh Gopīnāth, when will I wake up and abandon afar this enemy of lust, and when will You manifest Your- self in my heart?
+Oh Gopīnāth, when will I wake up and abandon afar this enemy of lust, and when will You manifest Yourself in my heart?
 
 #### 4
 
     gopīnāth,  āmi to’ tomāra jon tomāre chāḍiyā,   saṁsāra bhajinu,
     bhuliyā āpana-dhana
 
-Oh Gopīnāth, I am Your devotee, but having aban- doned You and thus having forgotten my real treasure, I have worshiped this mundane world.
+Oh Gopīnāth, I am Your devotee, but having abandoned You and thus having forgotten my real treasure, I have worshiped this mundane world.
 
 #### 5
 

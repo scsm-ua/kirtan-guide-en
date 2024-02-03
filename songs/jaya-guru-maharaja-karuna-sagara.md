@@ -19,7 +19,7 @@ By his mercy, Śrī Śrī Nitāi-Chaitanyadeva have manifested in Puri Dhām bes
 
     gorāpreme mātoyārā nityānanda-rūpa rasarāja mahābhāva chaitanya-svarūpa
 
-Śrī Nityānanda Prabhu’s form is dancing ecstati- cally intoxicated with divine love for Śrī Gaura, whose manifestation is Rasarāj Śrī Krishna taking the heart and halo of Mahābhāva, Śrīmatī Rādhārāṇī.
+Śrī Nityānanda Prabhu’s form is dancing ecstatically intoxicated with divine love for Śrī Gaura, whose manifestation is Rasarāj Śrī Krishna taking the heart and halo of Mahābhāva, Śrīmatī Rādhārāṇī.
 
 #### 4
 
@@ -44,19 +44,19 @@ souls, their devotional eyes full of love and affection can see Their divine for
 
     mṛdaṅga mandirā bāje suśaṅkha-dhvanita śruti-mauli-ratnamālā-dīpa nirājita
 
-In the temple during the *ārati* , the *mṛdaṅgas* re- sound sweetly as conchshells are blown and the ghee lamp is offered. The different parts of the Vedas within bhakti yoga have taken form in each light as a bhakti yoga light and through this form they are worshipping Their Lordships in the ārati.
+In the temple during the *ārati* , the *mṛdaṅgas* resound sweetly as conchshells are blown and the ghee lamp is offered. The different parts of the Vedas within bhakti yoga have taken form in each light as a bhakti yoga light and through this form they are worshipping Their Lordships in the ārati.
 
 #### 8
 
     bhuvana-mohana du̐hu̐ rūpera ārati gupta-vṛndāraṇya-vāsī dekhe niravadhi
 
-This type of *ārati* is only seen by the residents of Nabadwīp Dhām and the dear associates of Śrī Chaitan- ya. Anyone who sees it will be extremely charmed by it.
+This type of *ārati* is only seen by the residents of Nabadwīp Dhām and the dear associates of Śrī Chaitanya. Anyone who sees it will be extremely charmed by it.
 
 #### 9
 
     śrī svarūpa rāmānanda rūpa-sanātana raghunātha haridāsa gadādhara dhana
 
-Śrī Chaitanya’s dear associates, Śrī Swarūp Dā- modar, Rāmānanda Rāya, Rūpa Goswāmī, Sanātan Goswāmī, Raghunāth Dās Goswāmī, Haridās Ṭhākur and Gadādhara Paṇḍit are seeing and performing this *ārati* .
+Śrī Chaitanya’s dear associates, Śrī Swarūp Dāmodar, Rāmānanda Rāya, Rūpa Goswāmī, Sanātan Goswāmī, Raghunāth Dās Goswāmī, Haridās Ṭhākur and Gadādhara Paṇḍit are seeing and performing this *ārati* .
 
 #### 10
 
@@ -74,5 +74,5 @@ Sārvabhauma Bhaṭṭāchārya, Gopīnāth Āchārya and the followers in the *
 
     avichintya nityānanda-chaitanya-prakāśa śrī guru-prasāde dekhe ei adhama dāsa (śrī guru-prasāde dekhe śrī govinda dāsa)
 
-Inconceivably Śrī Śrī Nitāi-Chaitanya have mani- fested and through the mercy of Śrī Gurudeva this fallen soul sees Their ārati and joins within the saṅkīrtan.
+Inconceivably Śrī Śrī Nitāi-Chaitanya have manifested and through the mercy of Śrī Gurudeva this fallen soul sees Their ārati and joins within the saṅkīrtan.
 

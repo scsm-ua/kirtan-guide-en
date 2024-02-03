@@ -25,11 +25,11 @@ Lord Gaurāṅga calls, “Wake up, sleeping souls! Wake up, sleeping souls! You
 
     enechi auṣadhi māyā nāśibāro lāgi’ hari-nāma mahā-mantra lao tumi māgi’
 
-“I have brought the medicine for destroying the il- lusion of māyā . Now pray for this Hari-nāma-mahāman- tra and take it.”
+“I have brought the medicine for destroying the illusion of māyā . Now pray for this Hari-nāma-mahāmantra and take it.”
 
 #### 5
 
     bhakativinoda prabhura-charaṇe poḍiyā sei hari-nāma-mantra loilo māgiyā
 
-Ṭhākur Bhakti Vinod fell at the lotus feet of Lord Gaurāṅga, and after begging for the Holy Name he re- ceived that *mahāmantra* .
+Ṭhākur Bhakti Vinod fell at the lotus feet of Lord Gaurāṅga, and after begging for the Holy Name he received that *mahāmantra* .
 

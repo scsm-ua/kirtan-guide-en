@@ -31,5 +31,5 @@ To reach such a perfect personality as Lord Chaitanya, I can only break my head 
     se-saba saṅgīra saṅge je koilo vilāsa
     se-saṅga nā pāyā kānde narottama dāsa
 
-They have all gone off together in their own Pas- times. Narottam Dās Ṭhākur says: “Unable to obtain their association, I must simply weep.”
+They have all gone off together in their own Pastimes. Narottam Dās Ṭhākur says: “Unable to obtain their association, I must simply weep.”
 

@@ -10,19 +10,19 @@
 
     jagannātha-suta mahāprabhu viśvambhara māyāpura-śaśi navadvīpa-sudhākara
 
-Lord Chaitanya is the beloved son of Jagannāth Miśra; He is Mahāprabhu, the great master, protector, and maintainer of the whole world. He is the shining moon of Māyāpur, dissipating the dark ignorance of the world, and the source of all nectar for the Land of Nabad- wīp.
+Lord Chaitanya is the beloved son of Jagannāth Miśra; He is Mahāprabhu, the great master, protector, and maintainer of the whole world. He is the shining moon of Māyāpur, dissipating the dark ignorance of the world, and the source of all nectar for the Land of Nabadwīp.
 
 #### 2
 
     śachī-suta gaurahari nimāi-sundara rādhā-bhāva-kānti-āchādito naṭavara
 
-He is the beloved son of Śachī Mātā and is Lord Hari with a golden complexion. As He was born under a neem tree He was called Nimāi- *sundar* (beautiful Nimāi). He is covered by the sentiment and lustre of Śrīmatī Rādhārāṇī, and He is the best of all dancers.
+He is the beloved son of Śachī Mātā and is Lord Hari with a golden complexion. As He was born under a neem tree He was called Nimāi*sundar* (beautiful Nimāi). He is covered by the sentiment and lustre of Śrīmatī Rādhārāṇī, and He is the best of all dancers.
 
 #### 3
 
     nāmānanda chapala bālaka mātṛ-bhakta brahmāṇḍa-badana tarkī kautukānurakta
 
-Lord Chaitanya becomes ecstatic upon hearing the Holy Name of Hari. As a boy He was swift and agile, devoted to His mother, a great logician, and fond of jok- ing. Millions of worlds are contained in His mouth.
+Lord Chaitanya becomes ecstatic upon hearing the Holy Name of Hari. As a boy He was swift and agile, devoted to His mother, a great logician, and fond of joking. Millions of worlds are contained in His mouth.
 
 #### 4
 
@@ -46,7 +46,7 @@ He is the Lord and husband of Lakṣmī Priyā. By His saṅkīrtan movement, He
 
     ārya-dharma-pāla pitṛ-gayā piṇḍa-dātā purī-śiṣya madhvāchārya-sampradāya-pātā
 
-He was the protector and preserver of sanāta- na-dharma and the giver of *piṇḍa* at Gayā after the disap- pearance of His father, Jagannāth Miśra. He became the disciple of Īśvara Purī and is the protector of the Madhva Āchārya Sampradāya.
+He was the protector and preserver of sanātana-dharma and the giver of *piṇḍa* at Gayā after the disappearance of His father, Jagannāth Miśra. He became the disciple of Īśvara Purī and is the protector of the Madhva Āchārya Sampradāya.
 
 #### 8
 
@@ -89,7 +89,7 @@ He is thus the Lord of Nabadwīp which serves as the stage for His wonderful Pas
 
     nārāyaṇī-kṛpā-sindhu jīvera niyantā adhama-paḍūyā-daṇḍī bhakta-doṣa-hantā
 
-He is the ocean of mercy for Nārāyaṇī; the con- troller of all souls; the chastiser of the fallen student who criticised His chanting of “Gopī, gopī!”, and the destroy- er of the sins of His devotees.
+He is the ocean of mercy for Nārāyaṇī; the controller of all souls; the chastiser of the fallen student who criticised His chanting of “Gopī, gopī!”, and the destroyer of the sins of His devotees.
 
 #### 15
 
@@ -107,7 +107,7 @@ Lord Chaitanya is the master of Lord Śiva, who is known as Ambu-liṅga, Bhuvan
 
     nirdaṇḍi-sannyāsī sārvabhauma-kṛpāmoy svānanda-āsvādānānandī sarva-sukhāśroy
 
-He became a sannyāsī without a daṇḍa (staff) due to Lord Nityānanda’s breaking it and throwing it in the Bhargi River. He is full of mercy for Sārvabhauma Bhaṭṭāchārya. He is ecstatic by tasting the bliss of Him- self in the form of Krishna, and He is the resting place of all happiness.
+He became a sannyāsī without a daṇḍa (staff) due to Lord Nityānanda’s breaking it and throwing it in the Bhargi River. He is full of mercy for Sārvabhauma Bhaṭṭāchārya. He is ecstatic by tasting the bliss of Himself in the form of Krishna, and He is the resting place of all happiness.
 
 #### 18
 
@@ -119,7 +119,7 @@ Lord Gaurāṅga is beautiful like molten gold and He delivered the leper Vāsud
 
     bauddha-jaina-māyāvādi-kutarka-khaṇḍana dakṣiṇa-pāvana bhakti-grantha-udhāraṇa
 
-He refuted the atheistic arguments of the Bud- dhists, Jains, and Māyāvādīs. He is the saviour of South India, and He has brought to light the two devotional lit- eratures, Krishna-karṇāmṛta and Brahma-saṁhitā.
+He refuted the atheistic arguments of the Buddhists, Jains, and Māyāvādīs. He is the saviour of South India, and He has brought to light the two devotional literatures, Krishna-karṇāmṛta and Brahma-saṁhitā.
 
 #### 20
 
@@ -143,7 +143,7 @@ By His appearance at Kuliyā He delivered the ill-behaved student community. He 
 
     kāśīvāsi-sannyāsī-udhārī prema-dātā markaṭa-vairāgī-daṇḍī ā-chaṇḍāla-trātā
 
-He delivered the Māyāvādī sannyāsīs of Kāśī, and He is the bestower of love of God. To set a strict example for sannyāsīs He chastised the great devotee Choṭo Ha- ridās’s begging rice from Mādhavī Devī. Śrī Chaitanya is the saviour of everyone down to the lowest class of men.
+He delivered the Māyāvādī sannyāsīs of Kāśī, and He is the bestower of love of God. To set a strict example for sannyāsīs He chastised the great devotee Choṭo Haridās’s begging rice from Mādhavī Devī. Śrī Chaitanya is the saviour of everyone down to the lowest class of men.
 
 #### 24
 
@@ -155,5 +155,5 @@ He delivered the Māyāvādī sannyāsīs of Kāśī, and He is the bestower of 
 
     nadiyā-nagare nitāi neche neche gāy re bhakativinoda tā̐’ra poḍe rāṅgā-pāy re
 
-In the towns and villages of Nadia, Lord Nityānan- da dances ecstatically, singing these divine Names, and Ṭhākur Bhakti Vinod falls down at His reddish lotus feet.
+In the towns and villages of Nadia, Lord Nityānanda dances ecstatically, singing these divine Names, and Ṭhākur Bhakti Vinod falls down at His reddish lotus feet.
 

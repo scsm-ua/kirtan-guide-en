@@ -12,5 +12,5 @@ All glories to Krishna, the son of Mother Yaśodā, the cowherd boy and giver of
 
     jaya achyuta mādhava rām vṛndāvana-chandra jaya muralī-vadana śyāma gopī-janānanda
 
-All glories to the infallible Lord, husband of the goddess of fortune, the supreme enjoyer, and the moon of Vṛndāvan! All glories to Krishna, who always holds a flute to His mouth, who is the colour of a dark blue rain- cloud, and is the bliss of the gopīs!
+All glories to the infallible Lord, husband of the goddess of fortune, the supreme enjoyer, and the moon of Vṛndāvan! All glories to Krishna, who always holds a flute to His mouth, who is the colour of a dark blue raincloud, and is the bliss of the gopīs!
 

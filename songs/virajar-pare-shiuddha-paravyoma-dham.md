@@ -15,21 +15,21 @@ Beyond the Virajā River lies the pure spiritual sky, and above that Vaikuṇṭ
     vṛndāvana chintāmaṇi, chid-ānanda-ratna-khani, chinmoy apūrva-daraśan
     ta̐hi mājhe chamatkār,   kṛṣṇa vanaspati sār, nīla-maṇi tamāla jemon
 
-The land of Vṛndāvan is made of spiritual gems and is therefore likened to a mine of fully cognizant and blissful jewels. This transcendentally conscious realm is certainly a wonderful and extraordinary sight. With- in that abode is the most astonishing presence of Lord Krishna, who is compared to a *tamāl* tree, the king of trees possessing the hue of a dark sapphire.
+The land of Vṛndāvan is made of spiritual gems and is therefore likened to a mine of fully cognizant and blissful jewels. This transcendentally conscious realm is certainly a wonderful and extraordinary sight. Within that abode is the most astonishing presence of Lord Krishna, who is compared to a *tamāl* tree, the king of trees possessing the hue of a dark sapphire.
 
 #### 3
 
     tāhe eka svarna-mayī,  latā sarva-dhāma-jayī, uthiyāche parama-pāvanī
 
 hlādinī-śaktir sār,  ‘mahābhāva’ nām jār, tribhuvana-mohana-mohinī
-Entwined upon that blackish tree a beautiful gold- en creeper has arisen, who is the conqueror of all realms, being the supreme purifier. Her name is Mahābhāva, be- ing the essence of the supreme pleasure-giving hlādinī potency. She is the enchantress of Śrī Krishna, who is Himself the enchanter of the three worlds.
+Entwined upon that blackish tree a beautiful golden creeper has arisen, who is the conqueror of all realms, being the supreme purifier. Her name is Mahābhāva, being the essence of the supreme pleasure-giving hlādinī potency. She is the enchantress of Śrī Krishna, who is Himself the enchanter of the three worlds.
 
 #### 4
 
     rādhā-nāme parichita,  tuṣiyā govinda-chita, virājaye parama ānande
     sei latā-patra-phul,       lalitādi sakhī-kul, sobe mili’ vṛkṣe dṛḍha bāndhe
 
-Known by the name of Rādhā, She remains shin- ing there in great ecstasy, always engaged in satisfying Govinda’s heart. The leaves and flowers of that creeper form the assembly of Her girlfriends headed by Lalitā. Together She and all Her friends entwine that blackish tree in a tight embrace.
+Known by the name of Rādhā, She remains shining there in great ecstasy, always engaged in satisfying Govinda’s heart. The leaves and flowers of that creeper form the assembly of Her girlfriends headed by Lalitā. Together She and all Her friends entwine that blackish tree in a tight embrace.
 
 #### 5
 

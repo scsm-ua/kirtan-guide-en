@@ -18,13 +18,13 @@ According to Your desire Lord Brahmā creates and according to Your desire Lord 
 
     tava ichā-mate śiva korena saṁhāra tava ichā-mate māyā sṛje kārāgāra
 
-According to Your will Lord Śiva destroys, accord- ing to Your will Māyā constructs the prison house of this world.
+According to Your will Lord Śiva destroys, according to Your will Māyā constructs the prison house of this world.
 
 #### 4
 
     tava ichā-mate jīver janama-maraṇa samṛddhi-nipāta duḥkha sukha-saṅghaṭana
 
-According to Your will the living beings take birth and die, and according to Your will they meet with pros- perity and ruin, happiness and sorrow.
+According to Your will the living beings take birth and die, and according to Your will they meet with prosperity and ruin, happiness and sorrow.
 
 #### 5
 
@@ -42,7 +42,7 @@ You are my only protector and maintainer. Except for Your lotus feet there is no
 
     nija-bala-cheṣṭa-prati bharasā chāḍiyā tomāra ichāya āchi nirbhara koriyā
 
-No longer confident of my own strength and en- deavour, I have become solely dependent on Your will.
+No longer confident of my own strength and endeavour, I have become solely dependent on Your will.
 
 #### 8
 

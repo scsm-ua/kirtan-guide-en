@@ -7,14 +7,14 @@
     hari hari!  biphole janama goyāinu
     manuṣya-janama pāiyā, rādhā-kṛṣṇa nā bhajiyā, jāniyā śuniyā biṣa khāinu
 
-Oh Lord Hari, I have spent my life uselessly. Hav- ing obtained a human birth and having not worshipped Rādhā and Krishna, I have knowingly drunk poison.
+Oh Lord Hari, I have spent my life uselessly. Having obtained a human birth and having not worshipped Rādhā and Krishna, I have knowingly drunk poison.
 
 #### 2
 
     golokera prema-dhana,  harināma-saṅkīrtana, rati nā janmilo keno tāya
     saṁsāra-biṣānale,    divā-niśi hiyā jvale, juḍāite nā koinu upāya
 
-The treasure of divine love in Goloka Vṛndāvan has descended as the congregational chanting of Lord Hari’s Holy Names. Why did my attraction for that chant- ing never come about? Day and night my heart burns from the fire of the poison of worldliness, and I have not taken the means to relieve it.
+The treasure of divine love in Goloka Vṛndāvan has descended as the congregational chanting of Lord Hari’s Holy Names. Why did my attraction for that chanting never come about? Day and night my heart burns from the fire of the poison of worldliness, and I have not taken the means to relieve it.
 
 #### 3
 

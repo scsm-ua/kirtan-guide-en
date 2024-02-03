@@ -15,7 +15,7 @@ of flowers. His form is covered with hairs standing erect, hairs that defeat the
     jini’ madamatta hāti   gamana manthara ati bhāvāveśe ḍhuli ḍhuli jāya
     aruṇa-vasana chhobi  jini prabhātera robi gorā-aṅge laharī khelāya
 
-His slow walking defeats the walking of intoxicat- ed elephants. Overcome with ecstatic love, He staggers and staggers as He walks. His saffron garments defeat the beautiful colour of the rising sun. His fair limbs play in the waves of spiritual pastimes.
+His slow walking defeats the walking of intoxicated elephants. Overcome with ecstatic love, He staggers and staggers as He walks. His saffron garments defeat the beautiful colour of the rising sun. His fair limbs play in the waves of spiritual pastimes.
 
 #### 3
 
@@ -29,5 +29,5 @@ Overcome, Lord Gauracandra has no power to walk. Now He has no power to speak. H
     e sukha-sampada-kāle  gorā nā bhajinu hele heno pade nā korinu āśa
     śrī-kṛṣṇa-chaitanya-chandra ṭhākura śrī-nityānanda guṇa gāya vṛndāvana dāsa
 
-Alas! At that blissful fortunate time I did not wor- ship Lord Gaura. I did not yearn to attain His feet. In this way Vṛndāvan das sings the glories of Lord Cait- anyachandra and Lord Nityānanda.
+Alas! At that blissful fortunate time I did not worship Lord Gaura. I did not yearn to attain His feet. In this way Vṛndāvan das sings the glories of Lord Caitanyachandra and Lord Nityānanda.
 

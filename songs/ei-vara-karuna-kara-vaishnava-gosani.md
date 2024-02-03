@@ -30,11 +30,11 @@ If one commits an offence at the feet of Lord Hari, he can be forgiven if he cha
 
     tomāra hṛdaye sadā govinda-viśrāma govinda kahena mama vaiṣṇava parāna
 
-In your heart Govinda is always resting. Śrī Govin- da Himself says, “My devotees are My life and soul.”
+In your heart Govinda is always resting. Śrī Govinda Himself says, “My devotees are My life and soul.”
 
 #### 6
 
     prati janme kari āśā charaṇera dhuli narottame kara dayā āpanāra vali
 
-I hope that in every birth I will obtain the dust of your lotus feet. Śrī Narottam prays, “Please, Oh Vaiṣṇa- va Goswāmī, be kind unto me.”
+I hope that in every birth I will obtain the dust of your lotus feet. Śrī Narottam prays, “Please, Oh Vaiṣṇava Goswāmī, be kind unto me.”
 

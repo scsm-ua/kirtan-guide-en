@@ -25,5 +25,5 @@ Bound in *māyā’s* net you’ve slaved and toiled in vain. But now that you h
 
     jīvana hoilo śeṣa, nā bhajile hṛṣīkeśa bhaktivinod-upadeśa, ekbār nām-rase māto re
 
-This life must surely end soon, and you have not worshiped Hṛṣīkeśa, the master of the senses. Bhakti Vi- nod advises: at least once, taste the *nāma-rasa* , the nectar of the Holy Name.
+This life must surely end soon, and you have not worshiped Hṛṣīkeśa, the master of the senses. Bhakti Vinod advises: at least once, taste the *nāma-rasa* , the nectar of the Holy Name.
 

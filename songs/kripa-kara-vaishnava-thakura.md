@@ -21,7 +21,7 @@ If I falsely think that ‘I am a Vaiṣṇava’, then I shall look forward to 
     tomāra kiṅkora,     āpane jānibo, ‘guru’-abhimān tyaji’
     tomāra uchiṣṭha,     padajala-reṇu, sadā niṣkapaṭe bhaji
 
-Renouncing the false conception that I am a ‘guru’, I will understand myself to be your humble servant. I sin- cerely worship the remnants of your food, oh pure devo- tee, as well as the water that has washed the sacred dust of your lotus feet.
+Renouncing the false conception that I am a ‘guru’, I will understand myself to be your humble servant. I sincerely worship the remnants of your food, oh pure devotee, as well as the water that has washed the sacred dust of your lotus feet.
 
 #### 4
 
@@ -35,5 +35,5 @@ amānī mānada,      hoile kīrtane adhikār dibe tumi
 
     tomāra charaṇe,      niṣkapaṭe āmi, kā̐diyā luṭibo bhūmi
 
-If you will bestow upon me the capacity to chant the Holy Name, I will then give all honour to others with- out expecting any respect for myself. Thus I will sincerely weep in ecstasy while rolling on the ground at your lotus feet.
+If you will bestow upon me the capacity to chant the Holy Name, I will then give all honour to others without expecting any respect for myself. Thus I will sincerely weep in ecstasy while rolling on the ground at your lotus feet.
 

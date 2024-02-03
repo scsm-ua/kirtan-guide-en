@@ -13,7 +13,7 @@ All glories to the beautiful ārati of Śrī Girirāj which is going on in Śrī
 
     pramoda-madana-līla śrī-rādhā-ramaṇa yathā nitya-līlā kore loye sakhī-gaṇa
 
-Lord Śrī Rādha-Ramaṇa [Krishna who gives plea- sure to his beloved Śrīmatī Rādhārāṇī] is eternally play- ing His joyful Loving Pastimes there in the association of the Sakhīs of Śrīmatī Rādhārāṇī.
+Lord Śrī Rādha-Ramaṇa [Krishna who gives pleasure to his beloved Śrīmatī Rādhārāṇī] is eternally playing His joyful Loving Pastimes there in the association of the Sakhīs of Śrīmatī Rādhārāṇī.
 
 #### 3
 
@@ -31,7 +31,7 @@ Within this holy place are Śyāma Kuṇḍa, Rādhā Kuṇḍa, Kusum Sarovar, 
 
     śrī-govinda-kuṇḍa līlāsthalī nāhi sīmā divāniśi-bhakta-vṛnda kore parikramā
 
-With Śrī Govinda Kuṇḍa, these holy places of di- vine Pastimes are without limit. Day and night the devo- tees are performing circumambulation in worship.
+With Śrī Govinda Kuṇḍa, these holy places of divine Pastimes are without limit. Day and night the devotees are performing circumambulation in worship.
 
 #### 6
 

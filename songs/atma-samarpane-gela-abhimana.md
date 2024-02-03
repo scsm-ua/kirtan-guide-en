@@ -12,13 +12,13 @@ Surrendering my soul unto You has lifted from me the burden of false pride. No l
 
     tuyā dhana jāni’ tuhu̐ rākhobi, nāth! pālya godhana jāni kori’ tuyā sāth
 
-I know that You will give protection to Your trea- sured possessions, Oh Lord. I now understand the men- tality of Your treasured cows safely maintained by Your side.
+I know that You will give protection to Your treasured possessions, Oh Lord. I now understand the mentality of Your treasured cows safely maintained by Your side.
 
 #### 3
 
     charāobi mādhava! yamunā-tīre baṁśī bājāoto ḍākobi dhīre
 
-When You lead Your herds to pasture, Oh Mādha- va, on the banks of the Yamunā river, You will call to them by softly playing on Your flute.
+When You lead Your herds to pasture, Oh Mādhava, on the banks of the Yamunā river, You will call to them by softly playing on Your flute.
 
 #### 4
 
@@ -36,7 +36,7 @@ Fearless and confident of Your protection, I will drink the waters of the Yamun�
 
     kālīya-dokha karabi vināśā śodhobi nadī-jala, bāḍāobi āśā
 
-The Kālīya serpent’s venom poisoned the Ya- munā’s waters, yet that poison will be vanquished. You will purify the Yamunā, and by such heroic deeds en- hance our faith.
+The Kālīya serpent’s venom poisoned the Yamunā’s waters, yet that poison will be vanquished. You will purify the Yamunā, and by such heroic deeds enhance our faith.
 
 #### 7
 

@@ -25,7 +25,7 @@ I have become blind by constantly meditating on the objects of the senses. The w
 
     māyāre koriyā jaya chāḍāna na jāya sādhu-kṛpā vinā āro nahiko upāya
 
-Even if I can cure my blindness and defeat Māyā in the form of this hangman, I cannot become free from ma- terial illusion without the mercy of the saintly devotees.
+Even if I can cure my blindness and defeat Māyā in the form of this hangman, I cannot become free from material illusion without the mercy of the saintly devotees.
 
 #### 5
 

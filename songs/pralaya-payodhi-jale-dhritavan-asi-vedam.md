@@ -14,7 +14,7 @@ Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of 
     kṣitir iha vipulatare tiṣṭhati tava pṛṣṭhe dharaṇi-dharaṇa-kina-chakra-gariṣṭhe
     keśava dhṛta-kūrma-śarīra jaya jagadīśa hare
 
-Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of a tortoise! All glo- ries to You! In this incarnation as a divine tortoise the great Mandara Mountain rests upon Your gigantic back as a pivot for churning the ocean of milk. From holding up the huge mountain a large scarlike depression is put in Your back, which has become most glorious.
+Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of a tortoise! All glories to You! In this incarnation as a divine tortoise the great Mandara Mountain rests upon Your gigantic back as a pivot for churning the ocean of milk. From holding up the huge mountain a large scarlike depression is put in Your back, which has become most glorious.
 
 #### 3
 
@@ -36,7 +36,7 @@ of the wasplike demon Hiraṇyakaśipu has been ripped apart by the wonderful po
     chalayasi vikramaṇe balim adbhuta-vāmana pada-nakha-nīra-janita-jana-pāvana
     keśava dhṛta-vāmana-rūpa jaya jagadīśa hare
 
-Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of a dwarf- *brāhmaṇ* ! All glories to You! Oh wonderful dwarf, by Your massive steps You deceive King Bali, and by the Ganges water that has emanated from the nails of Your lotus feet, You deliver all living beings within this world.
+Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of a dwarf*brāhmaṇ* ! All glories to You! Oh wonderful dwarf, by Your massive steps You deceive King Bali, and by the Ganges water that has emanated from the nails of Your lotus feet, You deliver all living beings within this world.
 
 #### 6
 
@@ -58,7 +58,7 @@ Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of 
     keśava dhṛta-haladhara-rūpa jaya jagadīśa hare
 
 Oh Keśava! Oh Lord of the universe! Oh Lord
-270  Hari, who have assumed the form of Balarām, the wielder of the plow! All glories to You! On Your brilliant white body You wear garments the colour of a fresh blue rain cloud. These garments are coloured like the beautiful dark hue of the River Yamunā, who feels
+Hari, who have assumed the form of Balarām, the wielder of the plow! All glories to You! On Your brilliant white body You wear garments the colour of a fresh blue rain cloud. These garments are coloured like the beautiful dark hue of the River Yamunā, who feels
 great fear due to the striking of Your plowshare.
 
 #### 9
@@ -80,7 +80,7 @@ Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of 
     śrī-jayadeva-kaver idam uditam udāraṁ
     śṛṇu sukha-daṁ śubha-daṁ bhava-sāram keśava dhṛta-daśa-vidha-rūpa jaya jagadīśa hare
 
-Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed these ten different forms of in- carnation! All glories to You! Oh readers, please hear this hymn of the poet Jayadeva, which is most excellent, an awarder of happiness, a bestower of auspiciousness, and is the best thing in this dark world.
+Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed these ten different forms of incarnation! All glories to You! Oh readers, please hear this hymn of the poet Jayadeva, which is most excellent, an awarder of happiness, a bestower of auspiciousness, and is the best thing in this dark world.
 
 #### 12
 

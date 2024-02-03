@@ -10,7 +10,7 @@ Our Lord Gaura came chanting “Hari! Hari!”
 
     elo re gaurāṅga-chānd preme elothelo nitāi-advaita-saṅge godrume paśilo
 
-Lord Gaurāṅga-chānd came looking very dishev- eled, as if mad, due to ecstatic love of God, and along with Lord Nityānanda and Advaita Āchārya, He entered the land of Godruma.
+Lord Gaurāṅga-chānd came looking very disheveled, as if mad, due to ecstatic love of God, and along with Lord Nityānanda and Advaita Āchārya, He entered the land of Godruma.
 
 #### 2
 
@@ -22,7 +22,7 @@ Deeply absorbed in the intoxicating mellows of sankirtan, He distributed the hol
 
     godruma-vāsīr āj duḥkha dūre gelo bhakta-vṛnda-saṅge āsi’ hāṭa jāgāilo
 
-Today all the miseries of the residents of Godru- ma-dvīpa have gone far away, for Lord Gaurāṅga, having come here along with all His devotees, caused the Mar- ketplace of the Holy Name to appear here in Godruma.
+Today all the miseries of the residents of Godruma-dvīpa have gone far away, for Lord Gaurāṅga, having come here along with all His devotees, caused the Marketplace of the Holy Name to appear here in Godruma.
 
 #### 4
 
@@ -47,5 +47,5 @@ Maddened with ecstasy, Lord Nityānanda dances in the fields of Godruma. Due to 
 
     ki sukhe bhāsilo jīva gorāchānder nāṭe dekhiyā śuniyā pāṣanḍīr buka phāṭe
 
-In what indescribable happiness did all living be- ings swim while Lord Gaurachandra was dancing? By seeing and hearing of such Pastimes, the hearts of the atheists break.
+In what indescribable happiness did all living beings swim while Lord Gaurachandra was dancing? By seeing and hearing of such Pastimes, the hearts of the atheists break.
 

@@ -18,7 +18,7 @@ When will I obtain the mercy of Lord Nītyānanda? When, by His mercy, will my d
 
     biṣoya chāḍiyā kabe śuddha ha’be mana kabe hāma herabo śrī-vṛndāvana
 
-When will my mind be completely purified, having given up all material desires? When will I attain the vi- sion of Śrī Vṛndāvan Dhām?
+When will my mind be completely purified, having given up all material desires? When will I attain the vision of Śrī Vṛndāvan Dhām?
 
 #### 4
 
@@ -30,5 +30,5 @@ When will I be eager to follow in the footsteps of Śrī Rūpa and Śrī Raghun�
 
     rūpa-raghunātha-pade rahu mora āśa prārthanā karaye sadā narottama-dāsa
 
-My only aspiration is to attain the lotus feet of Śrī Rūpa and Śrī Raghunāth. Narottam Dās continually sub- mits this prayer.
+My only aspiration is to attain the lotus feet of Śrī Rūpa and Śrī Raghunāth. Narottam Dās continually submits this prayer.
 

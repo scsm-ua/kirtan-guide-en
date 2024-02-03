@@ -12,19 +12,19 @@ O when will Śrī Chaitanya bestow upon me his Grace? When will I get shelter in
 
     kobe āmi chāḍibo e viṣoyābhimān kobe viṣṇu-jane āmi koribo sammān
 
-When will I give up the false ego of being an enjoy- er and when will I offer all respects to the sincere devo- tees of Lord Viṣṇu?
+When will I give up the false ego of being an enjoyer and when will I offer all respects to the sincere devotees of Lord Viṣṇu?
 
 #### 3
 
     galavastra kṛtāñjali vaiṣṇava-nikaṭe dante tṛṇa kori dā̐ḍāibo niṣkapaṭe
 
-When will I submit myself by the feet of the Vaiṣṇa- va with the cloth of surrender around my neck and with straw between my teeth?
+When will I submit myself by the feet of the Vaiṣṇava with the cloth of surrender around my neck and with straw between my teeth?
 
 #### 4
 
     kā̐diyā kā̐diyā jānāibo duḥkhagrām saṁsāra-anala hoite māgibo viśrām
 
-Weeping and weeping when will I submit my sor- rowful tale at the feet of the Vaiṣṇava and when will I seek relief from the fire of material suffering praying to that Vaiṣṇava for shelter and rest?
+Weeping and weeping when will I submit my sorrowful tale at the feet of the Vaiṣṇava and when will I seek relief from the fire of material suffering praying to that Vaiṣṇava for shelter and rest?
 
 #### 5
 

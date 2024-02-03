@@ -7,7 +7,7 @@
     anya-abhilāṣa chāḍi   jñāna karma parihari kāya mane koribo bhajana
     sādhu-saṅge kṛṣṇa-sevā  nā pūjibo devī-devā ei bhakti parama-kāraṇa
 
-Worship the Lord with body and mind, giving up the desire for material endeavour and mundane knowl- edge. Perform service in the association of devotees and do not worship the various demigods. These activities are the prime cause of devotion to Krishna.
+Worship the Lord with body and mind, giving up the desire for material endeavour and mundane knowledge. Perform service in the association of devotees and do not worship the various demigods. These activities are the prime cause of devotion to Krishna.
 
 #### 2
 
@@ -15,28 +15,28 @@ Worship the Lord with body and mind, giving up the desire for material endeavour
     pūrvāpara koriyā vichāra sādhana-smaraṇa-līlā ihāte nā kara helā
     kāya mane koriyā sūsāra
 
-The essence of devotional practice is to carefully consider and follow the path revealed by the great devo- tees. One should not neglect the practice of remembering the Pastimes of the Lord, for devotional service should be performed with the mind as well as the body.
+The essence of devotional practice is to carefully consider and follow the path revealed by the great devotees. One should not neglect the practice of remembering the Pastimes of the Lord, for devotional service should be performed with the mind as well as the body.
 
 #### 3
 
     asat-saṅga sadā tyāga  chāḍa anya gīta-rāga karmī jñānī parihari dūre
     kevala bhakata-saṅga  prema-kathā-rasa-raṅga līlā-kathā vraja-rasa-pure
 
-Always give up bad association and avoid singing mundane songs. Keep at a distance from materialistic people as well as those absorbed with mundane knowl- edge. Associate only with the devotees and merge in the happiness of topics of the loving Pastimes of Krishna in Vṛndāvan.
+Always give up bad association and avoid singing mundane songs. Keep at a distance from materialistic people as well as those absorbed with mundane knowledge. Associate only with the devotees and merge in the happiness of topics of the loving Pastimes of Krishna in Vṛndāvan.
 
 #### 4
 
     jogī nyāsī karmī jñānī anya-deva-pūjaka dhyānī iha-loka dūre parihari
     karma dharma duḥkha śoka jebā thāke anya joga chāḍi’ bhaja girivara-dhārī
 
-Please give up the association of the *yogīs* , *sanny- āsīs* , *karmīs* , *jñānīs* , meditators, and the worshippers of the demigods. Also abandon attachment for all varieties of fruitive activities, religious duties, distresses, lamen- tations and material objects. Just worship Krishna, the lifter of Govardhan Hill.
+Please give up the association of the *yogīs* , *sannyāsīs* , *karmīs* , *jñānīs* , meditators, and the worshippers of the demigods. Also abandon attachment for all varieties of fruitive activities, religious duties, distresses, lamentations and material objects. Just worship Krishna, the lifter of Govardhan Hill.
 
 #### 5
 
     tīrtha-jātrā pariśrama  kevala-manera-bhrama sarva-siddhi govinda-charaṇa
     dṛdha-viśvāsa hṛde dhori mada-mātsarya parihari sadā kara ananya bhajana
 
-Travelling to the holy places is only so much hard labour to attain some mental illusion when really the lo- tus feet of Śrī Govinda are the perfection of one’s life.
+Travelling to the holy places is only so much hard labour to attain some mental illusion when really the lotus feet of Śrī Govinda are the perfection of one’s life.
 One should give up pride and envy and with firm
 determination in the heart, one should always perform unalloyed worship of the Lord.
 
@@ -52,7 +52,7 @@ The best process of devotional service is to hear, chant, worship, glorify and m
     hṛsīke govinda-sevā   nā pūjibo devī-devā ei to’ ananya-bhakti-kathā
     āra jata upālambha    viśeṣa sakali dambha dekhite lāgaye mane vyathā
 
-Engage the senses in the service of Śrī Govinda and do not worship the various demigods. This princi- ple is in the line of unalloyed devotion. All other activi- ties are simply done through pride and to see them gives great pain to one’s heart.
+Engage the senses in the service of Śrī Govinda and do not worship the various demigods. This principle is in the line of unalloyed devotion. All other activities are simply done through pride and to see them gives great pain to one’s heart.
 
 #### 8
 
@@ -97,26 +97,26 @@ Anger spoils everything. Therefore, I will always give up anger, greed and illus
     sakali vipatti jābe     mahānanda sūkha pābe jāra hoy ekānta bhajana
 
 All the enemies will run away by hearing the
-sound vibration of Govinda’s name just as a deer flees upon hearing the roar of a lion. One who performs unal- loyed devotional service will feel great happiness and all his dangers will be vanquished.
+sound vibration of Govinda’s name just as a deer flees upon hearing the roar of a lion. One who performs unalloyed devotional service will feel great happiness and all his dangers will be vanquished.
 
 #### 14
 
     nā koriho asat-cheṣṭa lābha pūjā pratiṣṭhā sadā chinta govinda-charaṇa
     sakala santāpa jābe    parānanda sukha pābe prema-bhakti parama-kāraṇa
 
-Therefore my dear mind, do not endeavour for bad association, profit, adoration and distinction, but al- ways remember the lotus feet of Govinda. Please engage in loving devotional service with great happiness and all your dangers will be destroyed.
+Therefore my dear mind, do not endeavour for bad association, profit, adoration and distinction, but always remember the lotus feet of Govinda. Please engage in loving devotional service with great happiness and all your dangers will be destroyed.
 
 #### 15
 
     asat-kriya kuṭināṭi     chāḍa anya paripāṭī anya deve nā koriho rati
     āpana āpana sthāne      pirīti sabāi ṭāne bhakti-pathe paḍaye bigati
 
-Please give up all duplicity, illusory activities and the search for bodily happiness. Do not be attached to the worship of various demigods. Mundane love and af- fection for material relationships attracts everyone to their respective illusions and thus advancement on the path of devotional service is checked.
+Please give up all duplicity, illusory activities and the search for bodily happiness. Do not be attached to the worship of various demigods. Mundane love and affection for material relationships attracts everyone to their respective illusions and thus advancement on the path of devotional service is checked.
 
 #### 16
 
     āpana bhajana-patha   tāhe hobo anūrata iṣṭa-deva-sthāne-līlā-gāna
     naiṣṭhika bhajana ei   tomāre kohinū bhāi hanumān tāhāte pramāṇa
 
-Be continuously engaged on the path of devotion- al worship and be attached to glorifying the Pastimes of Śrī Krishna in Vṛndāvan. This process of devotional ser- vice is known as steady devotional service. The prime example of this is Hanumān.
+Be continuously engaged on the path of devotional worship and be attached to glorifying the Pastimes of Śrī Krishna in Vṛndāvan. This process of devotional service is known as steady devotional service. The prime example of this is Hanumān.
 

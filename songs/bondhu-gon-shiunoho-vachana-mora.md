@@ -4,7 +4,7 @@
 
     āśliṣya vā pāda-ratāṁ pinaṣṭu mām adarśanān marma-hatāṁ karotu vā yathā tathā vā vidadhātu lampaṭo mat-prāṇa-nāthas tu sa eva nāparaḥ
 
-“Krishna may embrace me in love or trample me under His feet. He may break my heart by hiding Him- self from me. Let that debauchee do whatever He likes, but He will always be the only Lord of my life.”
+“Krishna may embrace me in love or trample me under His feet. He may break my heart by hiding Himself from me. Let that debauchee do whatever He likes, but He will always be the only Lord of my life.”
 
 #### 1
 
@@ -18,7 +18,7 @@ Oh my friends! Listen to my words. I am filled to overflowing with devotional ec
     bichakṣaṇa kori’  dekhite chāhile, hoya ā̐khi-agochara
     punaḥ nāhi dekhi’,   kā̐daye parāṇa, duḥkhera nā thāke ora
 
-And when I want to see Him more clearly, He dis- appears from sight and becomes invisible. Again, not see- ing Him, my soul weeps and my grief knows no bounds.
+And when I want to see Him more clearly, He disappears from sight and becomes invisible. Again, not seeing Him, my soul weeps and my grief knows no bounds.
 
 #### 3
 
@@ -44,5 +44,5 @@ But even though He pains my soul in this way, He is still the Lord of my life. W
     bhakativinoda,      saṁjoge bijoge, tāhe jāne prāṇeśvara
     tā’ra sukhe sukhī,  sei prāṇa-nātha, se kobhu nā hoya paro
 
-In this way, Bhakti Vinod, in both union and sep- aration, knows that Krishna is the only Lord of his soul. Krishna’s happiness is my happiness. He is the Lord of my life; there is no other Lord for me than Him.
+In this way, Bhakti Vinod, in both union and separation, knows that Krishna is the only Lord of his soul. Krishna’s happiness is my happiness. He is the Lord of my life; there is no other Lord for me than Him.
 

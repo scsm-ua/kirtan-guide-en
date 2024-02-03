@@ -27,7 +27,7 @@ One who worships Krishna alone is ignorant. Who does not adore Śrī Rādhā is 
 
     kobohi nāhi karabi tā̐kor saṅga chitte ichāsi jadi vraja-rasa-raṅga
 
-Never keep company with those who envy Rādhā if within your heart you at all aspire to the loving Pas- times of Vraja.
+Never keep company with those who envy Rādhā if within your heart you at all aspire to the loving Pastimes of Vraja.
 
 #### 5
 

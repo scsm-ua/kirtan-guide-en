@@ -4,7 +4,7 @@
 
     yugāyitaṁ nimeṣeṇa chakṣuṣā prāvṛṣāyitaṁ śūnyāyitaṁ jagat sarvaṁ govinda-viraheṇa me
 
-“Oh Govinda! Without You, the world is emp- ty. Tears are flooding my eyes like rain, and a moment seems like forever.”
+“Oh Govinda! Without You, the world is empty. Tears are flooding my eyes like rain, and a moment seems like forever.”
 
 #### 1
 
@@ -23,14 +23,13 @@ I realised that I was bound by Māyā’s ropes, in this dull mundane universe, 
 
     āro je saṁsāra mora nāhi lāge bhālo kā̐hā jāi kṛṣṇa heri e chintā biśālo
 
-And I don’t much like this world of birth and death. Where shall I go to see Krishna? This was my big- gest worry.
+And I don’t much like this world of birth and death. Where shall I go to see Krishna? This was my biggest worry.
 
 #### 4
 
     kā̐dite kā̐dite mora ā̐khi-boriṣoya barṣā-dhārā heno chakṣe hoilo udoya
 
-I began weeping and weeping; my tears fell. Tor-
-rents of rain poured from my eyes just like the rains of the monsoon season.
+I began weeping and weeping; my tears fell. Torrents of rain poured from my eyes just like the rains of the monsoon season.
 
 #### 5
 
@@ -43,7 +42,7 @@ Now, a moment for me is like a hundred ages. I cannot bear this separation from 
     śūnya dharā-tala,  chaudike dekhiye, parāṇa udāsa hoya
     ki kori, ki kori,     sthira nāhi hoya, jīvana nāhiko roya
 
-The world is empty; as I survey the four direc- tions, the entire surface of the world is void. My life is empty, my mind is listless; I am indifferent and apathetic towards everything. Depressed, melancholy and forlorn, my life has no meaning now. What do I do now? I cannot remain steady. I can no longer maintain my life.
+The world is empty; as I survey the four directions, the entire surface of the world is void. My life is empty, my mind is listless; I am indifferent and apathetic towards everything. Depressed, melancholy and forlorn, my life has no meaning now. What do I do now? I cannot remain steady. I can no longer maintain my life.
 
 #### 7
 

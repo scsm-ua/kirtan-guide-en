@@ -16,7 +16,7 @@ Krishna is the baby who feeds on the breast of Mother Yaśodā. He is the son of
 
     śrī gokula niśācharī-pūtanā ghātana duṣṭa-tṛṇāvarta-hantā śakaṭa-bhañjana
 
-Krishna destroyed the witch of Gokul, Pūtanā; He broke the cart in which the demon Śakaṭāsura was hid- ing; and He destroyed the wicked demon, Tṛṇāvarta.
+Krishna destroyed the witch of Gokul, Pūtanā; He broke the cart in which the demon Śakaṭāsura was hiding; and He destroyed the wicked demon, Tṛṇāvarta.
 
 #### 3
 
@@ -28,7 +28,7 @@ He is an expert thief of butter and yoghurt, He broke the two Jamala Arjuna tree
 
     dāmodara vṛndāvana-go-vatsa-rākhāla vatsāsurāntaka hari nija-jana-pāla
 
-He is so naughty that His mother bound Him around the waist with ropes. Thus He is known as Dā- modar. He is the keeper of Vṛndāvan’s cows and calves, the destroyer of the demon Vatsāsura, He is the remover of all evils and is the protector of His devotees.
+He is so naughty that His mother bound Him around the waist with ropes. Thus He is known as Dāmodar. He is the keeper of Vṛndāvan’s cows and calves, the destroyer of the demon Vatsāsura, He is the remover of all evils and is the protector of His devotees.
 
 #### 5
 
@@ -70,13 +70,13 @@ He is the lover of Śrīmatī Rādhārāṇī and the very springtime of Her lif
 
     nava-jaladhara-kānti madana-mohana vana-mālī smera-mukha gopī-prāṇadhana
 
-Krishna possesses the loveliness of a fresh rain cloud in the Autumn sky. He is the bewilderer of Cupid, always garlanded with fresh forest flowers. His face is like a full-blown lotus flower of sweet smiles and laugh- ter. He is the wealth of the lives of all the young maidens in Vraja.
+Krishna possesses the loveliness of a fresh rain cloud in the Autumn sky. He is the bewilderer of Cupid, always garlanded with fresh forest flowers. His face is like a full-blown lotus flower of sweet smiles and laughter. He is the wealth of the lives of all the young maidens in Vraja.
 
 #### 12
 
     tri-bhaṅgī muralī-dhara jāmuna-nāgara rādhā-kuṇḍa-raṅga-netā rasera sāgara
 
-He possesses a beautiful three-fold bending form and holds a flute known as Muralī. He is the lover of the Yamunā River, the director of all the amorous love sports at Rādhā Kuṇḍa, and He is the ocean of devotional mel- lows.
+He possesses a beautiful three-fold bending form and holds a flute known as Muralī. He is the lover of the Yamunā River, the director of all the amorous love sports at Rādhā Kuṇḍa, and He is the ocean of devotional mellows.
 
 #### 13
 
@@ -94,13 +94,13 @@ He is the giver of the Mānasa Gaṅgā Lake to the inhabitants of Vṛndāvan. 
 
     gokula-sampada gopa-duḥkha-nibāraṇa durmada-damana bhakta-santāpa-haraṇa
 
-He is the wealth of Gokul and protects the cow- herd men and boys from all miseries. He curbs all foolish pride and removes all distress from His devotees.
+He is the wealth of Gokul and protects the cowherd men and boys from all miseries. He curbs all foolish pride and removes all distress from His devotees.
 
 #### 16
 
     sudarśana-mochana śrī-saṅkhachūḍāntaka rāmānuja śyāma-chā̐da muralī-bādaka
 
-Krishna gives the gopīs side-long glances and is the destroyer of Śaṅkhachūḍa. He is the younger broth- er of Lord Baladeva, He is the beautiful dark moon of Vṛndāvan and the player of the flute.
+Krishna gives the gopīs side-long glances and is the destroyer of Śaṅkhachūḍa. He is the younger brother of Lord Baladeva, He is the beautiful dark moon of Vṛndāvan and the player of the flute.
 
 #### 17
 
@@ -118,14 +118,13 @@ Krishna is the destroyer of the demon Vyomāsura. He is lotus-eyed, the killer o
 
     vasudeva-suta vṛṣṇi-baṁśa-kīrti-dhvaja dīnanātha mathureśa devakī-garbha-ja
 
-He is the beloved son of Vasudeva and the em- blem of fame for the Vṛṣṇi dynasty. The Lord of the fall- en souls, Śrī Krishna, is the Lord of Mathurā and He ap- pears to have taken birth from the womb of Devakī.
+He is the beloved son of Vasudeva and the emblem of fame for the Vṛṣṇi dynasty. The Lord of the fallen souls, Śrī Krishna, is the Lord of Mathurā and He appears to have taken birth from the womb of Devakī.
 
 #### 20
 
     kubjā-kṛpāmoya viṣṇu śauri nārāyaṇa dvārakeśa narakaghna śrī-jadunandana
 
-Krishna is full of mercy for the hunchbacked Kub-
-jā. He is the maintainer of the entire creation, the son of Vasudeva, the refuge of all souls, the Lord of Dvārakā, the slayer of Narakāsura and the beloved descendent of the Jadu dynasty.
+Krishna is full of mercy for the hunchbacked Kubjā. He is the maintainer of the entire creation, the son of Vasudeva, the refuge of all souls, the Lord of Dvārakā, the slayer of Narakāsura and the beloved descendent of the Jadu dynasty.
 
 #### 21
 
@@ -137,13 +136,13 @@ He is the lover of Rukmiṇī, the husband of Satyā, the protector of the godly
 
     jagadīśa janārdana keśavārta-trāṇa sarva-avatāra-bīja viśvera nidāna
 
-Krishna is the Lord of the universe, the maintainer of all living beings and He possesses beautiful hair. He is the deliverer from all misery and the origin of the uni- verse and all incarnations.
+Krishna is the Lord of the universe, the maintainer of all living beings and He possesses beautiful hair. He is the deliverer from all misery and the origin of the universe and all incarnations.
 
 #### 23
 
     māyeśvara yogeśvara brāhma-tejā-dhāra sarvātmāra ātmā prabhu prakṛtira pāra
 
-He is the Lord of Māyā; the master of mysticism; the proprietor of the spiritual powers of the brāhmanas; the Lord, master and soul of all souls, and He is the op- posite shore of the ocean of material nature.
+He is the Lord of Māyā; the master of mysticism; the proprietor of the spiritual powers of the brāhmanas; the Lord, master and soul of all souls, and He is the opposite shore of the ocean of material nature.
 
 #### 24
 

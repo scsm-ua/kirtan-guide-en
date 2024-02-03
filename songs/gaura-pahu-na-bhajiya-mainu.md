@@ -12,14 +12,14 @@ O Lord Gaura! I have not worshiped You and have been robbed of the jewel of divi
 
     adhane jatana kori dhana teyā-ginu āpana karama doṣe āpani ḍuvinu
 
-Although I am in need of Your wealth, I have en- deavoured to reject Your riches and instead I have dived into sinful material activity.
+Although I am in need of Your wealth, I have endeavoured to reject Your riches and instead I have dived into sinful material activity.
 
 #### 3
 
     sat-saṅga chāḍi koinu asate vilāsa
     te-kāraṇe lāgilo je karma-bandha-phāṅsa
 
-Avoiding the association of saintly persons, I have enjoyed sporting with materialistic people. For that rea- son I have become bound in the noose of fruitive activity and its reactions.
+Avoiding the association of saintly persons, I have enjoyed sporting with materialistic people. For that reason I have become bound in the noose of fruitive activity and its reactions.
 
 #### 4
 
@@ -31,5 +31,5 @@ I have perpetually drunk the horrible poison of material sense gratification and
 
     keno bā āchaye prāṇa ki sukha lāgiyā narottama dāsa keno nā gelo moriyā
 
-O why has my heart not experienced any satisfac- tion and why has Narottam Dās not simply perished?
+O why has my heart not experienced any satisfaction and why has Narottam Dās not simply perished?
 

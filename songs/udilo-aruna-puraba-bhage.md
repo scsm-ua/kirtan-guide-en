@@ -9,7 +9,7 @@
     udilo aruṇa pūraba-bhāge, dvija-maṇi gorā amani jāge, bhakata-samūha loiyā sāthe,
     gelā nagara-brāje
 
-Just before sunrise, as the eastern sky turned crim- son, the jewel of the twice-born, Śrī Gaurahari, awoke. Taking His devotees with Him He began the kīrtan, wan- dering through the countryside towns and villages.
+Just before sunrise, as the eastern sky turned crimson, the jewel of the twice-born, Śrī Gaurahari, awoke. Taking His devotees with Him He began the kīrtan, wandering through the countryside towns and villages.
 
 #### 2
 

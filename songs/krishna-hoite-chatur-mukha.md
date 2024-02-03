@@ -7,14 +7,14 @@
     kṛṣṇa hoite chatur-mukha, hon kṛṣṇa-sevonmukha, brahmā hoite nāradera mati
     nārada hoite vyāsa,   madhva kohe vyāsa-dāsa, pūrṇaprajña padmanābha gati
 
-In the beginning of creation the science of devo- tional service was received by the four-headed Brahmā from the Supreme Lord Śrī Krishna. Devarṣi Nārada’s understanding of this divine science was obtained from Brahmā. The great sage Krishna Dvaipāyana Vyāsa, who was empowered to compile the Vedic literatures, became a disciple of Devarṣi Nārada. Śrīpād Madhva Āchārya, the founder of the Śuddha-dvaita school of Vedānta philosophy, who visited Vyāsadeva at Badarīkāśram in the thirteenth century to learn from him Vedānta phi- losophy, calls himself a servant of Krishna Dvaipāyana Vyāsa. Pūrṇaprajña Tīrtha [Madhva] is the guru and sole refuge of Padmanābha Tīrtha.
+In the beginning of creation the science of devotional service was received by the four-headed Brahmā from the Supreme Lord Śrī Krishna. Devarṣi Nārada’s understanding of this divine science was obtained from Brahmā. The great sage Krishna Dvaipāyana Vyāsa, who was empowered to compile the Vedic literatures, became a disciple of Devarṣi Nārada. Śrīpād Madhva Āchārya, the founder of the Śuddha-dvaita school of Vedānta philosophy, who visited Vyāsadeva at Badarīkāśram in the thirteenth century to learn from him Vedānta philosophy, calls himself a servant of Krishna Dvaipāyana Vyāsa. Pūrṇaprajña Tīrtha [Madhva] is the guru and sole refuge of Padmanābha Tīrtha.
 
 #### 2
 
     nṛhari mādhava-baṁśe, akṣobhya paramahaṁse, śiṣya boli aṅgīkāra kore
     akśobhyera śiṣya jaya-   tīrtha nāme parichaya, tā̐ra dāsye jñānasindhu tore
 
-The two other principal disciples of Madhva are Nṛhari Tīrtha and Mādhava Tīrtha. Mādhava Tīrtha ac- cepted the great paramahaṁsa Akṣobhya Tīrtha as a disciple. The principal disciple of Akṣobhya Tīrtha was known as Jayatīrtha. Jayatīrtha’s service was for his disci- ple Jñānasindhu.
+The two other principal disciples of Madhva are Nṛhari Tīrtha and Mādhava Tīrtha. Mādhava Tīrtha accepted the great paramahaṁsa Akṣobhya Tīrtha as a disciple. The principal disciple of Akṣobhya Tīrtha was known as Jayatīrtha. Jayatīrtha’s service was for his disciple Jñānasindhu.
 
 #### 3
 
@@ -30,22 +30,22 @@ Rājendra Tīrtha became a disciple of Vidyādhirāja Tīrtha. Rājendra Tīrtha
     jayadharma-dāsye khyāti,  śrī puruṣottama-yati tā̐’ha’te brahmaṇya-tīrtha sūri
     vyāsatīrtha tā̐ra dāsa,   lakṣmīpati vyāsa-dāsa, tā̐ha hoite mādhavendra purī
 
-The great sannyāsī Śrī Puruṣottama Tīrtha received his knowledge in the service of his guru, Vijayadhvaja Tīrtha [Jayadharma]. The principal disciple of Puruṣot- tama Tīrtha was Subrahmaṇya Tīrtha. His servant was the great Vyāsatīrtha [Vyāsa Rāya]. Vyāsatīrtha’s servant was Lakṣmīpati Tīrtha, whose disciple was Mādhavendra Purī Goswāmī.
+The great sannyāsī Śrī Puruṣottama Tīrtha received his knowledge in the service of his guru, Vijayadhvaja Tīrtha [Jayadharma]. The principal disciple of Puruṣottama Tīrtha was Subrahmaṇya Tīrtha. His servant was the great Vyāsatīrtha [Vyāsa Rāya]. Vyāsatīrtha’s servant was Lakṣmīpati Tīrtha, whose disciple was Mādhavendra Purī Goswāmī.
 
 #### 5
 
     mādhavendra purī-vara,   śiṣya-vara śrī-īśvara, nityānanda, śrī-advaita vibhu
     īśvara-purīke dhonya,   korilena śrī-chaitanya, jagad-guru gaura mahāprabhu
 
-The chief disciple of Mādhavendra Purī was Īśvara Purī, and two of his other disciples were the renowned incarnations of Godhead Śrī Nityānanda and Śrī Advaita Āchārya. Śrī Chaitanya Mahāprabhu, the spiritual pre- ceptor of all the worlds, made Īśvara Purī greatly fortu- nate by accepting him as His spiritual master.
+The chief disciple of Mādhavendra Purī was Īśvara Purī, and two of his other disciples were the renowned incarnations of Godhead Śrī Nityānanda and Śrī Advaita Āchārya. Śrī Chaitanya Mahāprabhu, the spiritual preceptor of all the worlds, made Īśvara Purī greatly fortunate by accepting him as His spiritual master.
 
 #### 6
 
     mahāprabhu śrī-chaitanya, rādhā-kṛṣṇa nahe anya, rūpānuga jonera jīvana
     viśvambhara priyaṅkara,  śrī svarūpa-dāmodara, srī gosvāmī rūpa-sanātana
 
-Mahāprabhu Śrī Chaitanya is nondifferent from Śrī Śrī Rādhā and Krishna and is the very life of those Vaiṣṇavas who follow Śrī Rūpa Goswāmī. Śrī Swarūp Dā- modar Goswāmī, Rūpa Goswāmī and Sanātan Goswāmī
-258  were the givers of great happiness to Viśvambha - ra [Śrī Chaitanya].
+Mahāprabhu Śrī Chaitanya is nondifferent from Śrī Śrī Rādhā and Krishna and is the very life of those Vaiṣṇavas who follow Śrī Rūpa Goswāmī. Śrī Swarūp Dāmodar Goswāmī, Rūpa Goswāmī and Sanātan Goswāmī
+were the givers of great happiness to Viśvambha - ra [Śrī Chaitanya].
 
 #### 7
 
@@ -81,6 +81,6 @@ The nondifferent personality and embodiment of bhakti-siddhānta as well as Śr�
     tā̐ra priya mano’ bhīṣṭa  sthāpane sadāsacheṣṭa bhakti sundara śrī govinda nāma
     ei paramparā dhana     sabe gaura-nijajana tā̐dera uchiṣṭe mora kāma
 
-He who is a very dear disciple of that Śrīla Śrīdhar Dev-Goswāmī Mahārāj, and who is establishing his di- vine conception, and who is fulfilling his desire continu- ously, he is Śrīla Bhakti Sundar Govinda Dev-Goswāmī. This is our grand preceptorial line and all of them are very dear to Śrī Chaitanya Mahāprabhu. My sustenance
+He who is a very dear disciple of that Śrīla Śrīdhar Dev-Goswāmī Mahārāj, and who is establishing his divine conception, and who is fulfilling his desire continuously, he is Śrīla Bhakti Sundar Govinda Dev-Goswāmī. This is our grand preceptorial line and all of them are very dear to Śrī Chaitanya Mahāprabhu. My sustenance
 is their remn ∂ ants alone. > ∂
 

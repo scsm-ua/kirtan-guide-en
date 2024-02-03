@@ -37,7 +37,7 @@ Flute, horn, His footsteps, range of clouds in the sky, Season of spring, the mo
 
     jugala vilāse anukūla jāni līlā-vilāsa-uddīpaka māni
 
-I know all these things are nourishing the Pastimes of the Divine Couple, I can feel they arouse the holy Pas- times of the Lord;
+I know all these things are nourishing the Pastimes of the Divine Couple, I can feel they arouse the holy Pastimes of the Lord;
 
 #### 7
 

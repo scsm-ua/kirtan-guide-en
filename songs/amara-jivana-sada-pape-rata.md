@@ -14,7 +14,7 @@ My life is always attached to sinful activity and there is not even a small part
     nija sukha lāgi’,  pāpe nāhi ḍori, dayā-hīna svārtha-paro
     para-sukhe duḥkhī,   sadā mithya-bhāṣī, para-duḥkha sukha-kara
 
-For the sake of my own happiness I have open- ly performed sinful activity. Devoid of compassion, I am concerned only with my own selfish interests. Always telling lies, I become miserable to see the happiness of others, while the misery of others brings great happiness to me.
+For the sake of my own happiness I have openly performed sinful activity. Devoid of compassion, I am concerned only with my own selfish interests. Always telling lies, I become miserable to see the happiness of others, while the misery of others brings great happiness to me.
 
 #### 3
 
@@ -35,7 +35,7 @@ Ruined by laziness and sleep, I resist all pious deeds, yet am very enthusiastic
     e heno durjana,   sajjana-varjita, aparādhi nirantara
     śubha-kārja-śūnya,   sadānartha-manāḥ, nānā duḥkhe jara jara
 
-A vile, wicked man such as this, rejected by saint- ly persons, is a constant offender, devoid of auspicious works, always in the mentality of separate interest, and wasted away by various kinds of miseries.
+A vile, wicked man such as this, rejected by saintly persons, is a constant offender, devoid of auspicious works, always in the mentality of separate interest, and wasted away by various kinds of miseries.
 
 #### 6
 

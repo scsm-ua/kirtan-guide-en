@@ -6,13 +6,13 @@
 
     nitāi guṇamaṇi āmāra nitāi guṇamaṇi āniyā premera vanyā bhāsāla abanī
 
-O my Lord Nityānanda, the jewel of all good qual- ities; O Nitāi, the jewel of all good qualities has brought a flood of ecstatic love of Godhead that has drowned the whole world.
+O my Lord Nityānanda, the jewel of all good qualities; O Nitāi, the jewel of all good qualities has brought a flood of ecstatic love of Godhead that has drowned the whole world.
 
 #### 2
 
     premavanyā loye nitāi āila gāuḍa deśe ḍubilo bhakata-gaṇa dīnahīna bhāse
 
-Lord Nityānanda has brought this overwhelming deluge of love of Godhead to the land of Bengal on Lord Chaitanya’s order. The devotees have been inundated by this deluge but the unfortunate non-devotees have re- mained floating on that ecstatic ocean.
+Lord Nityānanda has brought this overwhelming deluge of love of Godhead to the land of Bengal on Lord Chaitanya’s order. The devotees have been inundated by this deluge but the unfortunate non-devotees have remained floating on that ecstatic ocean.
 
 #### 3
 

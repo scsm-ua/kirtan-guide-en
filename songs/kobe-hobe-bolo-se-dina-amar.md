@@ -14,14 +14,14 @@ Please tell me, when will that day be mine—when my offences will end and a tas
     tṛṇādhika hīna,    kobe nije māni, sahiṣṇutā-guṇa hṛdoyete āni’
     sakale mānada,   āpani amānī, hoye āsvādibo nāma-rasa-sār
 
-Considering myself lower than a blade of grass, bringing the quality of forbearance into my heart, show- ing respect to all, myself being freed from all false pride— when will I taste the essence of the liquid nectar of the Holy Name?
+Considering myself lower than a blade of grass, bringing the quality of forbearance into my heart, showing respect to all, myself being freed from all false pride— when will I taste the essence of the liquid nectar of the Holy Name?
 
 #### 3
 
     dhona jon āra,       kobitā-sundarī, bolibo nā chāhi deho-sukha-karī
     janme-janme dāo,    ohe gaurahari! ahaitukī bhakti charaṇe tomār
 
-Wealth, following, beautiful women, as described in worldly poetry—I do not want any such bodily plea- sures. O Lord Gaurahari, please give me unmotivated devotion to Your lotus feet, birth after birth.
+Wealth, following, beautiful women, as described in worldly poetry—I do not want any such bodily pleasures. O Lord Gaurahari, please give me unmotivated devotion to Your lotus feet, birth after birth.
 
 #### 4
 
@@ -43,19 +43,19 @@ When, in the land of Nabadwīp, on the banks of the Ganges, will I run about, gu
     kobe nityānanda, more kori’ dayā, chāḍāibe mora viṣoyera māyā
     diyā more nija-      charaṇera chāyā, nāmera hāṭete dibe adhikār
 
-When will Lord Nityānanda be merciful to me and release me from the illusion of worldliness? Giving me the shade of His lotus feet, when will He allow me to en- ter the marketplace of the Holy Name?
+When will Lord Nityānanda be merciful to me and release me from the illusion of worldliness? Giving me the shade of His lotus feet, when will He allow me to enter the marketplace of the Holy Name?
 
 #### 7
 
     kinibo, luṭibo,     hari-nāma-rasa, nāma-rase māti’ hoibo vivaśa
     rasera rasika-       charaṇa paraśa, koriyā mojibo rase anibār
 
-I shall buy and plunder the mellow of the Name Hari, and becoming thoroughly intoxicated by those liq- uid mellows of the Holy Name, I shall become stunned. By touching the feet of those great souls who are able to relish those mellows, I will be constantly immersed in the sweet nectar of the Holy Name.
+I shall buy and plunder the mellow of the Name Hari, and becoming thoroughly intoxicated by those liquid mellows of the Holy Name, I shall become stunned. By touching the feet of those great souls who are able to relish those mellows, I will be constantly immersed in the sweet nectar of the Holy Name.
 
 #### 8
 
     kobe jīve dayā,    hoibe udoya, nija-sukha bhuli’ sudīna-hṛdoya
     bhakativinoda,      koriyā binoya, śrī-ājñā-ṭoholo koribe prachār
 
-When will there be an awakening of compassion for all fallen souls, and when will this Bhakti Vinod, for- getting his own happines, with a meek heart set out to propagate by humble entreaty the sacred order of Śrī Chaitanya Mahāprabhu?
+When will there be an awakening of compassion for all fallen souls, and when will this Bhakti Vinod, forgetting his own happines, with a meek heart set out to propagate by humble entreaty the sacred order of Śrī Chaitanya Mahāprabhu?
 

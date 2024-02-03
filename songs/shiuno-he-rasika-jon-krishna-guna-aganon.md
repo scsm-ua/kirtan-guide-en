@@ -7,14 +7,14 @@
     śuno, he rasika jon      kṛṣṇa guṇa agaṇon ananta kohite nāhi pāre
     kṛṣṇa jagatera guru   kṛṣṇa vāñchākalpataru nāviko se bhava-pārābāre
 
-Listen to this, oh wisest relishers of mellows! The transcendental qualities of Śrī Krishna are innumerable; indeed it is not possible to describe such unlimited divine attributes. Krishna is the spiritual master of the entire universe, He is like a wish-fulfilling desire-tree, and He is the helmsman of the boat on the ocean of material exis- tence.
+Listen to this, oh wisest relishers of mellows! The transcendental qualities of Śrī Krishna are innumerable; indeed it is not possible to describe such unlimited divine attributes. Krishna is the spiritual master of the entire universe, He is like a wish-fulfilling desire-tree, and He is the helmsman of the boat on the ocean of material existence.
 
 #### 2
 
     hṛdoya pīḍita jā’ra     kṛṣṇa chikitsaka tā’ra bhava roga nāśite chatura
     kṛṣṇa bahirmukha jone   premāmṛta vitaraṇe krame loya nija antaḥpura
 
-Krishna is just like a doctor for those whose hearts are ailing, as He is very expert at destroying the diseased condition of material existence. By distributing the nec- tar of ecstatic love to all the inimical souls, He gradually takes them back into His own confidential realm.
+Krishna is just like a doctor for those whose hearts are ailing, as He is very expert at destroying the diseased condition of material existence. By distributing the nectar of ecstatic love to all the inimical souls, He gradually takes them back into His own confidential realm.
 
 #### 3
 
@@ -28,7 +28,7 @@ Krishna is an ocean of compassion for those who are bound up in fruitive reactio
     vidhi-mārga rata jone  svādhīnatā ratna dāne rāgamārge karāna praveśa
     rāga-vaśavarti ho’ye pārakīya-bhāvāśroye lobhe jīva kṛṣṇa-premāveśa
 
-Krishna eventually bestows the jewel of indepen- dence unto those persons who are attached to the path of rules and regulations, thereby allowing them entrance into the path of spontaneous loving service. Becoming influenced by such spontaneity, remaining under the shelter of the mellows of unwedded love ( *pārakīya-bhā- va* ), the soul finally attains all the symptoms of ecstatic love for Krishna.
+Krishna eventually bestows the jewel of independence unto those persons who are attached to the path of rules and regulations, thereby allowing them entrance into the path of spontaneous loving service. Becoming influenced by such spontaneity, remaining under the shelter of the mellows of unwedded love ( *pārakīya-bhāva* ), the soul finally attains all the symptoms of ecstatic love for Krishna.
 
 #### 5
 

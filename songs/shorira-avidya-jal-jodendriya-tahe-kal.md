@@ -15,7 +15,7 @@ Oh brothers! This material body is a network of ignorance, and the senses are on
     kṛṣṇa boḍo dayāmoy,  koribāre jihvā jay, sva-prasād-anna dilo bhāi
     sei annāmṛta pāo,  rādhā-kṛṣṇa-guṇa gāo, preme ḍāko chaitanya-nitāi
 
-Oh brothers! Lord Krishna is very merciful—just to control the tongue He has given us the remnants of His own food! Now please eat these nectarean grains while singing the glories of Their Lordships Śrī Śrī Rādhā- Krishna, and in love call out Chaitanya! Nitāi!
+Oh brothers! Lord Krishna is very merciful—just to control the tongue He has given us the remnants of His own food! Now please eat these nectarean grains while singing the glories of Their Lordships Śrī Śrī RādhāKrishna, and in love call out Chaitanya! Nitāi!
 
     (preme bhore ḍākare)
     (dayāl nitāi chaitanya bole, preme bhore ḍākare) (nitāi gaura haribol)

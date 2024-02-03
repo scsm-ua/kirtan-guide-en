@@ -4,13 +4,13 @@
 
     nāmnām akāri bahudhā nija-sarva-śaktis tatrārpitā niyamitaḥ smaraṇe na kālaḥ etādṛśī tava kṛpā bhagavan mamāpi durdaivam īdṛśam ihājani nānurāgaḥ
 
-“Oh my Lord, Your Holy Name bestows auspi- ciousness upon all. And You have unlimited Names such as Krishna and Govinda by which You reveal Yourself. In Your many Holy Names You have kindly invested all Your transcendental potency. And in chanting these Names, there are no strict rules concerning time or place. Out of Your causless mercy, You have descended in the form of divine sound, but my great misfortune is that I have no love for Your Holy Name.”
+“Oh my Lord, Your Holy Name bestows auspiciousness upon all. And You have unlimited Names such as Krishna and Govinda by which You reveal Yourself. In Your many Holy Names You have kindly invested all Your transcendental potency. And in chanting these Names, there are no strict rules concerning time or place. Out of Your causless mercy, You have descended in the form of divine sound, but my great misfortune is that I have no love for Your Holy Name.”
 
 #### 1
 
     tuhu̐ dayā-sāgara tārayite prāṇī nāma aneka tuyā śikhāoli āni
 
-O Lord! You are an ocean of mercy, and so you have brought the teachings of the glories of your unlimit- ed Holy Names to deliver all souls.
+O Lord! You are an ocean of mercy, and so you have brought the teachings of the glories of your unlimited Holy Names to deliver all souls.
 
 #### 2
 

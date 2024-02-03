@@ -10,7 +10,7 @@
     nija-nikaṭa-nivāsaṁ dehi govardhana tvam
 
 O Govardhan!
-You became the umbrella atop the handle of the arm of your Lord and crushed the pride of proud, arro- gant, impudent Indra. You are the incomparable king of all great mountains. Please give me a dear dwelling near you, O Govardhan!
+You became the umbrella atop the handle of the arm of your Lord and crushed the pride of proud, arrogant, impudent Indra. You are the incomparable king of all great mountains. Please give me a dear dwelling near you, O Govardhan!
 
 #### 2
 
@@ -27,7 +27,7 @@ The Divine Couple liberally enact Pastimes of mad love in your caves. So that I 
 
 O Govardhan!
 You induce your beloved to joyfully play with Balarām and His friends amidst your trees, brooks,
-caves, plateaus, valleys, and incomparable jeweled ter- races, which resemble jeweled thrones. Please give me a dwelling near you, O Govardhan!
+caves, plateaus, valleys, and incomparable jeweled terraces, which resemble jeweled thrones. Please give me a dwelling near you, O Govardhan!
 
 #### 4
 
@@ -56,7 +56,7 @@ You always fully nourish the cows everywhere with your land, water, plains, and 
     agha-baka-ripuṇochchhair datta-māna drutaṁ me nija-nikaṭa-nivāsaṁ dehi govardhana tvam
 
 O Govardhan!
-You are highly honoured by Śrī Krishna, the en- emy of Agha and Baka, who protected His community from the onslaught of Indra beneath your form as their new home. Please quickly give me a dwelling near you, O Govardhan!
+You are highly honoured by Śrī Krishna, the enemy of Agha and Baka, who protected His community from the onslaught of Indra beneath your form as their new home. Please quickly give me a dwelling near you, O Govardhan!
 
 #### 8
 
@@ -72,18 +72,18 @@ O king of mountains! When the nectar of your name “ *Hari-dāsa-varya* : the b
     nija-nikaṭa-nivāsaṁ dehi govardhana tvam
 
 O Govardhan!
-You alone give happiness to the people, animals, and birds of Vraja, who are filled with the mood of friendship towards Rādhā, Krishna, and Their compan- ions. You are immeasurably merciful. So, please accept me, a wearied soul, and give me a dwelling near you, O Govardhan!
+You alone give happiness to the people, animals, and birds of Vraja, who are filled with the mood of friendship towards Rādhā, Krishna, and Their companions. You are immeasurably merciful. So, please accept me, a wearied soul, and give me a dwelling near you, O Govardhan!
 
 #### 10
 
     nirupadhi-karuṇena śrī-śachī-nandanena tvayi kapaṭi-śaṭho ’pi tvat-priyeṇārpito ’smi iti khalu mama yogyāyogyatāṁ tām agṛhṇan nija-nikaṭa-nivāsaṁ dehi govardhana tvam
 
 O Govardhan!
-Although I am insincere and deceitful, I have been given to you by Your dear Śrī Śachī Nandan, who is un- conditionally merciful. So, please do not judge whether I am qualified or unqualified, and give me a dwelling near you, O Govardhan!
+Although I am insincere and deceitful, I have been given to you by Your dear Śrī Śachī Nandan, who is unconditionally merciful. So, please do not judge whether I am qualified or unqualified, and give me a dwelling near you, O Govardhan!
 
 #### 11
 
     rasada-daśakam asya śrīla-govardhanasya kṣiti-dhara-kula-bhartur yaḥ prayatnād adhīte sa sapadi sukhade ’smin vāsam āsādya sākṣāch chhubhada-yugala-sevā-ratnam āpnoti tūrṇam
 
-One who carefully studies these ten nectarean verses describing the king of mountains, Śrī Govardhan, will soon attain a dwelling at this joyous place and quick- ly attain the precious jewel of personal service to the Di- vine Couple.
+One who carefully studies these ten nectarean verses describing the king of mountains, Śrī Govardhan, will soon attain a dwelling at this joyous place and quickly attain the precious jewel of personal service to the Divine Couple.
 

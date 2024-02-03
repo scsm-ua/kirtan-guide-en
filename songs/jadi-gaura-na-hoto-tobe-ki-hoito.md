@@ -14,7 +14,7 @@ If Lord Gaura had not come, then what would have become of us? How could we have
     madhura vṛndā,     vipina mādhurī, praveśa chāturī sāra
     varaja-yuvatī,      bhāvera bhakati, śakati hoito kāra?
 
-Who would have had the capacity to render ecstat- ic devotional service, following the mood of the damsels of Vraja? Indeed, the clever expertise of the Vraja-gopīs is essential for entering the supremely sweet forest of Vṛndā, Śrī Vṛndāvan.
+Who would have had the capacity to render ecstatic devotional service, following the mood of the damsels of Vraja? Indeed, the clever expertise of the Vraja-gopīs is essential for entering the supremely sweet forest of Vṛndā, Śrī Vṛndāvan.
 
 #### 3
 
@@ -28,5 +28,5 @@ Sing again and again the wonderful qualities of Lord Gaurāṅga while keeping y
     gaurāṅga boliyā, nā genu goliyā kemone dhorinu de
     vāsur hiyā,     pāṣāṇa diyā kemone goḍiyāche
 
-Even though I am chanting ‘Gaurāṅga!’ somehow I have not melted in ecstatic love. So how have I main- tained the burden of this body? How is it that the creator has given this Vāsu a stone in place of his heart?
+Even though I am chanting ‘Gaurāṅga!’ somehow I have not melted in ecstatic love. So how have I maintained the burden of this body? How is it that the creator has given this Vāsu a stone in place of his heart?
 

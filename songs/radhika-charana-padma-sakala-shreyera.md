@@ -16,14 +16,14 @@ The lotus feet of Śrī Rādhā are the abode of all auspiciousness, the supreme
     rādhikā-bhāva-gambhīra, chitta jebā mahādhīra goṇ-soṅga nā koilo jīvane
     kemone se śyāmānanda, rasa-sindhu-snānānanda, lobhibe bujhoho ek-mane
 
-…who in his life has failed to associate with the intimate of Śrī Rādhā who are deeply filled with Rādhā’s mood of devotion and who are greatly intelligent—how will such a person bathe in the rasa-sindhu, the ocean of ecstatic joy which is Śyāmasundar? You must singlemind- edly understand this point.
+…who in his life has failed to associate with the intimate of Śrī Rādhā who are deeply filled with Rādhā’s mood of devotion and who are greatly intelligent—how will such a person bathe in the rasa-sindhu, the ocean of ecstatic joy which is Śyāmasundar? You must singlemindedly understand this point.
 
 #### 3
 
     rādhikā ujjvala-rasera āchārya
     rādhā-mādhava-śuddha-prema vichārya
 
-Śrī Rādhā is the exemplary teacher of the mel- lows of conjugal love. Pure ecstatic love for Śrī Śrī Rādhā-Mādhava is what is to be considered and dis- cussed.
+Śrī Rādhā is the exemplary teacher of the mellows of conjugal love. Pure ecstatic love for Śrī Śrī Rādhā-Mādhava is what is to be considered and discussed.
 
 #### 4
 

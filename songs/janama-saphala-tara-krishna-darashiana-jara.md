@@ -14,21 +14,21 @@ His birth is successful whose good fortune dawns so as to have the vision of Lor
     vṛndāvana-keli chatur vanamālī
     tribhaṅga-bhaṅgimārūpa   vaṁśī-dharī aparūpa rasamoya nidhi, guṇa-śālī
 
-One sees Krishna there fully decorated with gar- lands of forest flowers as the most expert connoisseur of all the amorous love-sports in Vṛndāvan. His transcen- dental form bent in three places, playing wonderfully on His flute, He is the reservoir of all relishable mellows and is the abode of all virtuous qualities.
+One sees Krishna there fully decorated with garlands of forest flowers as the most expert connoisseur of all the amorous love-sports in Vṛndāvan. His transcendental form bent in three places, playing wonderfully on His flute, He is the reservoir of all relishable mellows and is the abode of all virtuous qualities.
 
 #### 3
 
     varṇa nava jaladhara    śire śikhi picha vara alakā tilaka śobhā pāya
     paridhāne pīta-vāsa     vadane madhūra hāsa heno rūpa jagat mātāya
 
-By such a beautiful form He is maddening the entire universe. His complexion is like that of a fresh new rain cloud, His head is decorated with a big peacock feather, and the sandalwood tilak on His forehead is most becom- ing. Wearing brilliant yellow-coloured garments, He stands with His face decorated by a wide, sweet smile.
+By such a beautiful form He is maddening the entire universe. His complexion is like that of a fresh new rain cloud, His head is decorated with a big peacock feather, and the sandalwood tilak on His forehead is most becoming. Wearing brilliant yellow-coloured garments, He stands with His face decorated by a wide, sweet smile.
 
 #### 4
 
     indranīla jini    kṛṣṇa-rūpakhāni heriyā kadamba-mule
     mon uchāṭana    na chole charaṇa saṁsāra gelāma bhūle
 
-Beholding Him standing at the base of a kadamba tree, I can see that Krishna’s beauty is conquering the lus- tre of an entire mine of sapphires. Seeing this, my mind has become so restless that my feet will move no longer, and I’ve completely forgotten about my family and home life in this world.
+Beholding Him standing at the base of a kadamba tree, I can see that Krishna’s beauty is conquering the lustre of an entire mine of sapphires. Seeing this, my mind has become so restless that my feet will move no longer, and I’ve completely forgotten about my family and home life in this world.
 
 #### 4
 
@@ -42,12 +42,12 @@ O sakhī! Oh dear girlfriend! Seeing that sweet form abounding in nectar, I have
     kibā chūḍā śire   kibā vaṁśī kore kibā se tribhaṅga-ṭhāma
     charaṇa-kamale,   amiyā uchole, tāhāte nūpura dāma
 
-What a wonderful crown upon His head! What a wonderful flute He is holding in His hand! What a won- derfully beautiful form as He stands in His three-fold bending posture! The nectar of His lotus feet is overflow- ing with the tinkling sound coming from the clusters of ankle bells which are decorating them.
+What a wonderful crown upon His head! What a wonderful flute He is holding in His hand! What a wonderfully beautiful form as He stands in His three-fold bending posture! The nectar of His lotus feet is overflowing with the tinkling sound coming from the clusters of ankle bells which are decorating them.
 
 #### 6
 
     sadā āśā kori   bhṛṅga-rūpa dhori charaṇa kamale sthāna
     anāyāse pāi    kṛṣṇa-guṇa gāi āro nā bhajibo āna
 
-Accepting the form of a honeybee, I always hope for a residence near His lotus feet. And I will get it very easily because I always sing the glories of Krishna, ador- ing no-one else.
+Accepting the form of a honeybee, I always hope for a residence near His lotus feet. And I will get it very easily because I always sing the glories of Krishna, adoring no-one else.
 

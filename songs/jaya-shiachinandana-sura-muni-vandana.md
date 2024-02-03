@@ -15,7 +15,7 @@ Holy Name of Krishna, for when one chants the Holy Name of Krishna and dances in
     nayana-purandara viśvarūpa snehadhara, viśvambhara viśvera kalyāṇa
     jaya lakṣmī-viṣṇupriyā viśvambhara priyahiyā, jaya priya kiṅkara īśāna
 
-Śrī Chaitanya delights all eyes with His charming beauty. He is the most dearly beloved Lord of all and the intimate brother of Viśvarūp. He brings the highest auspiciousness to everyone, for He floods the entire uni- verse with the nectar of love of Godhead and thus saves all living beings. All glories to Lakṣmī Priyā and Viṣṇu Priyā Devī, who are very dear to Śrī Nimāi Paṇḍit. All glories to Their family servant, Īśāna.
+Śrī Chaitanya delights all eyes with His charming beauty. He is the most dearly beloved Lord of all and the intimate brother of Viśvarūp. He brings the highest auspiciousness to everyone, for He floods the entire universe with the nectar of love of Godhead and thus saves all living beings. All glories to Lakṣmī Priyā and Viṣṇu Priyā Devī, who are very dear to Śrī Nimāi Paṇḍit. All glories to Their family servant, Īśāna.
 
 #### 3
 

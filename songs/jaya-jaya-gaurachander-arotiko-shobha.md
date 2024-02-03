@@ -46,7 +46,7 @@ Conchshells, bells, and karatālas resound, and the mṛdaṅgas play very sweet
     (jhalmol jhalmol jhalmol kore)
     (gaura gole bona phuler mālā jhalmol jhalmol jhalmol kore) (nitāi gaura haribol)
 
-The brilliance of Lord Chaitanya’s face conquers millions upon millions of moons, and the garland of for- est flowers around His neck shines.
+The brilliance of Lord Chaitanya’s face conquers millions upon millions of moons, and the garland of forest flowers around His neck shines.
 
 #### 7
 

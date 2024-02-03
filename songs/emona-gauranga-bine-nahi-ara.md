@@ -7,14 +7,14 @@
     emona gaurāṅga bine nāhi āra heno avatāra       hobe ki hoyeche
     heno prema parachāra
 
-No one is like Lord Gaurāṅga! Will there ever be an incarnation like Him, an incarnation that preached ec- static love of Godhead as He did?
+No one is like Lord Gaurāṅga! Will there ever be an incarnation like Him, an incarnation that preached ecstatic love of Godhead as He did?
 
 #### 2
 
     duramati ati    patita pāṣaṇḍī prāṇe nā mārilo kore
     harināma diye       hṛdoya śodhilo jachi giyā ghore ghore
 
-He did not kill the fallen wicked-hearted blas- phemers. Instead He went from house to house visiting them. He begged them to chant Lord Krishna’s Holy Names. He gave them the Holy Names and purified their hearts.
+He did not kill the fallen wicked-hearted blasphemers. Instead He went from house to house visiting them. He begged them to chant Lord Krishna’s Holy Names. He gave them the Holy Names and purified their hearts.
 
 #### 3
 
@@ -42,5 +42,5 @@ Loudly they called out the Holy Names playing the mṛdaṅga and *karatāls* . 
     e tina bhuvana      ānande bhorilo uṭhilo maṅgala sora
     kohe premānanda   emona gaurāṅga rati nā janmilo mora
 
-An auspicious tumult arose. The three worlds were filled with bliss. Premānanda says: “Alas! Attach- ment for Lord Gaurāṅga did not arise in me.”
+An auspicious tumult arose. The three worlds were filled with bliss. Premānanda says: “Alas! Attachment for Lord Gaurāṅga did not arise in me.”
 

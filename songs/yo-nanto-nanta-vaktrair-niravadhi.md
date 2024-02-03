@@ -14,7 +14,7 @@
     vidhaiḥ sevate te yad-arthāḥ śrī-nityānanda-chandraṁ bhaja bhaja satataṁ
     gaura-kṛṣṇa-pradaṁ tam
 
-Lord Nityānanda’s representation as Ananta Śeṣa posseses unlimited mouths which propagate and glori- fy Lord Hari’s Holy Names and attributes. Ananta Śeṣa constantly holds the weight of the Earth planet upon His innumerable hoods as if it were an insignificant particle of dust. Ananta Śeṣa serves the Lord in several ways, manifesting  Himself as the Lord’s personal umbrella, resting place, and clothing. Let us eternally worship that great personality Śrī Nityānanda-chandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
+Lord Nityānanda’s representation as Ananta Śeṣa posseses unlimited mouths which propagate and glorify Lord Hari’s Holy Names and attributes. Ananta Śeṣa constantly holds the weight of the Earth planet upon His innumerable hoods as if it were an insignificant particle of dust. Ananta Śeṣa serves the Lord in several ways, manifesting  Himself as the Lord’s personal umbrella, resting place, and clothing. Let us eternally worship that great personality Śrī Nityānanda-chandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
 
 #### 2
 
@@ -26,7 +26,7 @@ Lord Nityānanda’s representation as Ananta Śeṣa posseses unlimited mouths 
     śrī nityānanda-chandraṁ bhaja bhaja satataṁ
     gaura-kṛṣṇa-pradaṁ tam
 
-Lord  Nityānanda’s  partial  manifestation  as KśīrodakaśāyīViṣṇufunctionsasthepreservationprinciple of the entire universal creation, and is localized within every soul (Paramātma). Another eminent expansion of Lord Nityānanda is Garbhodaśāyī Viṣṇu, that all- imposing figure whose thousands of heads are eulogized in the Vedic orations. Lord Nityānanda’s presence is
+Lord  Nityānanda’s  partial  manifestation  as KśīrodakaśāyīViṣṇufunctionsasthepreservationprinciple of the entire universal creation, and is localized within every soul (Paramātma). Another eminent expansion of Lord Nityānanda is Garbhodaśāyī Viṣṇu, that allimposing figure whose thousands of heads are eulogized in the Vedic orations. Lord Nityānanda’s presence is
 further extended in His expansion as Kāraṇodaśāyī Viṣṇu, the supplying principle encompassing unlimited universes. Lord Nityānanda is the master of the Lord of material nature, Kāraṇodaśāyī Viṣṇu, who is the shelter of all living entities. Let us eternally worship that great personality Śrī Nityānanda-chandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
 
 #### 3
@@ -72,7 +72,7 @@ who is none other than Lord Krishna.
     śrī-nityānanda-chandraṁ bhaja bhaja satataṁ
     gaura-kṛṣṇa-pradaṁ tam
 
-When Nityānanda Prabhu was a small boy, He performed sweet and charming Pastimes in the village of Ekachakra. His Pastimes invoked the deepest heart- felt happiness in His mother, father, relatives, and close friends. Once, a renunciate arrived at the house of Ni- tyānanda and prayed to the boy’s father for his son. Lord Nityānanda was placed in the hands of the renunciate and left to visit the holy places of pilgrimage, wander- ing throughout the length and breadth of India. Let us eternally worship that great personality Śrī Nityānan- da-chandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
+When Nityānanda Prabhu was a small boy, He performed sweet and charming Pastimes in the village of Ekachakra. His Pastimes invoked the deepest heartfelt happiness in His mother, father, relatives, and close friends. Once, a renunciate arrived at the house of Nityānanda and prayed to the boy’s father for his son. Lord Nityānanda was placed in the hands of the renunciate and left to visit the holy places of pilgrimage, wandering throughout the length and breadth of India. Let us eternally worship that great personality Śrī Nityānanda-chandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
 
 #### 7
 
@@ -97,7 +97,7 @@ who is none other than Lord Krishna.
     śrī-nityānanda-chandraṁ bhaja bhaja satataṁ
     gaura-kṛṣṇa-pradaṁ tam
 
-Nityānanda Prabhu was ordered by the golden moon, Śrīman Mahāprabhu, to deliver the masses by the wide distribution of Lord Krishna’s Holy Names. One evening, Lord Nityānanda encountered those two drunken and sinful brothers, Jagāi and Mādhāi, who were previously *brahma-daitya* demons of the first order, acting under the devastating spell of Kali-yuga. Suddenly, Nitāi was attacked by Mādhāi, whereupon His body became smeared with blood. In response, Lord Nitāi exhibited deep affection for the welfare of the two brothers and rescued them from their abominable condition. Let us eternally worship that great personality Śrī Nityānanda- chandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
+Nityānanda Prabhu was ordered by the golden moon, Śrīman Mahāprabhu, to deliver the masses by the wide distribution of Lord Krishna’s Holy Names. One evening, Lord Nityānanda encountered those two drunken and sinful brothers, Jagāi and Mādhāi, who were previously *brahma-daitya* demons of the first order, acting under the devastating spell of Kali-yuga. Suddenly, Nitāi was attacked by Mādhāi, whereupon His body became smeared with blood. In response, Lord Nitāi exhibited deep affection for the welfare of the two brothers and rescued them from their abominable condition. Let us eternally worship that great personality Śrī Nityānandachandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
 
 #### 9
 
@@ -110,7 +110,7 @@ Nityānanda Prabhu was ordered by the golden moon, Śrīman Mahāprabhu, to deli
 
 Lord Gaurāṅga instructed His family members
 and followers to wear pieces of Lord Nityānanda’s kaupīna respectfully on their bodies. So pure and
-impeccable is the character of Nitāi that even if He is seen holding the hand of a Yavana’s wife and carrying a bottle of wine, nonetheless He remains supremely wor- shippable by the great demigods such as Lord Brahmā. Lord Nityānanda is also the desirable object of those ex- alted devotees who can steal away the heart of the Lord. Let us eternally worship that great personality Śrī Ni- tyānanda-chandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
+impeccable is the character of Nitāi that even if He is seen holding the hand of a Yavana’s wife and carrying a bottle of wine, nonetheless He remains supremely worshippable by the great demigods such as Lord Brahmā. Lord Nityānanda is also the desirable object of those exalted devotees who can steal away the heart of the Lord. Let us eternally worship that great personality Śrī Nityānanda-chandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
 
 #### 10
 
@@ -122,7 +122,7 @@ impeccable is the character of Nitāi that even if He is seen holding the hand o
     śrī nityānanda-chandraṁ bhaja bhaja satataṁ
     gaura-kṛṣṇa-pradaṁ tam
 
-Accepting the renounced order of life and distrib- uting the Lord’s Holy Names, Lord Gaurāṅga chased af- ter those souls who had been spoiled by the doctrines of dry argumentative logic and motivated fruitive activity. Like Lord Gaurāṅga’s own shadow, Nitāi Prabhu accom- panied the Lord over land and through rivers, waterways, and jungles. In addition, Lord Nityānanda is the desired goal of all Gaurāṅga’s endeavours. Let us eternally wor- ship that grand personality Śrī Nityānanda-chandra, who can freely grant the association of that golden Lord Śrī Gaurāṅgadev, who is none other than Lord Krishna.
+Accepting the renounced order of life and distributing the Lord’s Holy Names, Lord Gaurāṅga chased after those souls who had been spoiled by the doctrines of dry argumentative logic and motivated fruitive activity. Like Lord Gaurāṅga’s own shadow, Nitāi Prabhu accompanied the Lord over land and through rivers, waterways, and jungles. In addition, Lord Nityānanda is the desired goal of all Gaurāṅga’s endeavours. Let us eternally worship that grand personality Śrī Nityānanda-chandra, who can freely grant the association of that golden Lord Śrī Gaurāṅgadev, who is none other than Lord Krishna.
 
 #### 11
 
@@ -143,5 +143,5 @@ intoxicated with the intense desire to taste the sweetness of Śrī Rādhikā’
     svapnavach chaiva mithyā śrī-nityānanda-chandraṁ patita-śaraṇa-daṁ
     gaura-daṁ taṁ bhaje ’ham
 
-O Nityānanda Prabhu, emperor amidst the per- sonal associates of Śrīman Mahāprabhu! Kindly grant this fallen soul deep and resolute faith in that pure and divine figure of Śrī Gaurāṅga. Lord Gaurāṅga’s person- ality exclusively embodies the sweet nectar relished deep within the devotional mellows of Śrī Śrī Rādhā-Krishna’s Pastimes. But if Your lotus feet are over-looked, than all so-called devotional orations and prayers meant for the highest worship become false, like a dream. I worship You, that great personality Nityānanda-chandra, who openly bestows shelter to the most fallen souls, freely granting the association of Śrī Gaurāṅgadev.
+O Nityānanda Prabhu, emperor amidst the personal associates of Śrīman Mahāprabhu! Kindly grant this fallen soul deep and resolute faith in that pure and divine figure of Śrī Gaurāṅga. Lord Gaurāṅga’s personality exclusively embodies the sweet nectar relished deep within the devotional mellows of Śrī Śrī Rādhā-Krishna’s Pastimes. But if Your lotus feet are over-looked, than all so-called devotional orations and prayers meant for the highest worship become false, like a dream. I worship You, that great personality Nityānanda-chandra, who openly bestows shelter to the most fallen souls, freely granting the association of Śrī Gaurāṅgadev.
 

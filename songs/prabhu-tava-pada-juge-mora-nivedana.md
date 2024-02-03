@@ -10,7 +10,7 @@
 
     prabhu tava pada-juge mora nivedana nāhi māgi deho-sukha, vidyā dhana, jana
 
-O Lord! This is my humble submission at Your lo- tus feet. I do not ask from You sensual pleasure, learning, wealth or followers.
+O Lord! This is my humble submission at Your lotus feet. I do not ask from You sensual pleasure, learning, wealth or followers.
 
 #### 2
 
@@ -28,7 +28,7 @@ Whatever birth I may obtain due to the results of my previous worldly activities
 
     ei mātra āśā mama tomāra charaṇe ahaitukī bhakti hṛde jāge anukṣaṇe
 
-This alone is my cherished hope, my aspiration, my prayer at Your lotus feet: Let causeless and uninterrupt- ed devotion awaken within my heart and flow towards You.
+This alone is my cherished hope, my aspiration, my prayer at Your lotus feet: Let causeless and uninterrupted devotion awaken within my heart and flow towards You.
 
 #### 5
 
@@ -40,7 +40,7 @@ Let me love Your lotus feet as much as I now love sense gratification; transfer 
 
     vipade sampade tāhā thākuka samabhāve dine dine bṛddhi hauk nāmera prabhāve
 
-In danger or success, good fortune or disaster, let me remain equipoised. And let my affection for You in- crease day by day by the influence of the Holy Name.
+In danger or success, good fortune or disaster, let me remain equipoised. And let my affection for You increase day by day by the influence of the Holy Name.
 
 #### 7
 

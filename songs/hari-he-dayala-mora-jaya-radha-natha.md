@@ -17,7 +17,7 @@ O Lord, after wandering through many wombs, I have taken refuge in You. Be merci
     jagata-kāraṇa tumi jagata-jīvana
     tomā chāḍā kāro na’hi he rādhā-ramaṇa
 
-O lover of Rādhā, You are the cause of the uni- verse and the life of the universe. Without You no-one has anything.
+O lover of Rādhā, You are the cause of the universe and the life of the universe. Without You no-one has anything.
 
 #### 4
 

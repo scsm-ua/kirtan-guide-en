@@ -6,13 +6,13 @@
 
     durlabha mānava-janma labhiyā saṁsāre kṛṣṇa nā bhajinu duḥka kohibo kāhāre?
 
-The human form of life is the rarest opportunity for attaining spiritual perfection. But now I am lament- ing, because I’ve somehow or other been born with such an opportunity, and I wasted it by never worshiping Lord Krishna. Oh, to whom shall I tell the tale of this misery?
+The human form of life is the rarest opportunity for attaining spiritual perfection. But now I am lamenting, because I’ve somehow or other been born with such an opportunity, and I wasted it by never worshiping Lord Krishna. Oh, to whom shall I tell the tale of this misery?
 
 #### 2
 
     ‘saṁsār’ ‘saṁsār’, kori miche gelo kāl lābha nā koilo kichu, ghaṭilo jañjāl
 
-Having married and entered into the entangle- ments of materialistic family life, I passed my time in vain. I never got any tangible gain or permanent benefit, only trouble and botheration.
+Having married and entered into the entanglements of materialistic family life, I passed my time in vain. I never got any tangible gain or permanent benefit, only trouble and botheration.
 
 #### 3
 
@@ -48,7 +48,7 @@ I live a very carefree life-style, eating, going out, wearing nice clothes as I 
 
     deho-geho-kalatrādi-chintā abirata jāgiche hṛdoye mor buddhi kori hoto
 
-My poor heart is plagued by constant anxieties about the maintenance and daily turmoils created by my body, my house, my wife, my family members and my so- cial obligations. All these anxieties are pinching me and destroying all my intelligence.
+My poor heart is plagued by constant anxieties about the maintenance and daily turmoils created by my body, my house, my wife, my family members and my social obligations. All these anxieties are pinching me and destroying all my intelligence.
 
 #### 9
 
@@ -73,11 +73,11 @@ All the stray dogs and jackals will then become very much delighted, and in grea
     je deher ei gati, tāra anugata
     saṁsār-vaibhava āro bondhu-jon jata
 
-Just see, this is the ultimate destination of this ma- terial body. And the most amazing thing is that all of my material opulences, house, family and friends have exact- ly the same destination.
+Just see, this is the ultimate destination of this material body. And the most amazing thing is that all of my material opulences, house, family and friends have exactly the same destination.
 
 #### 13
 
     ataeva māyā-moha chāḍi buddhimān nitya-tattva kṛṣṇa-bhakti koruna sandhān
 
-Therefore I ask of anyone who has any sharp in- telligence: please give up all of these temporary illusions presented by Māyā, and kindly search after the means to get pure devotion to Lord Krishna, for this is the only really tangible eternal truth.
+Therefore I ask of anyone who has any sharp intelligence: please give up all of these temporary illusions presented by Māyā, and kindly search after the means to get pure devotion to Lord Krishna, for this is the only really tangible eternal truth.
 

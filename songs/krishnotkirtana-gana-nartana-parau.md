@@ -69,7 +69,7 @@ devotional activities they conquered over eating and sleeping and were always me
     gāyantau cha kadā harer guṇa-varaṁ bhāvābhibhūtau mudā
     vande rūpa-sanātanau raghu-yugau śrī-jīva-gopālakau
 
-I offer my respectful obeisances unto the Six Goswāmīs, namely Śrī Rūpa Goswāmī, Śrī Sanātan Goswāmī, Śrī Raghunāth Bhaṭṭa Goswāmī, Śrī Raghunāth Dās Goswāmī, Śrī Jīva Goswāmī, and Śrī Gopāl Bhaṭṭa Goswāmī, who were sometimes on the bank of the Rādhā- kuṇḍa lake or the shores of the Yamunā and sometimes at Vaṁśīvaṭa. There they appeared just like madmen in the full ecstasy of love for Krishna, exhibiting different transcendental symptoms in their bodies, and they were merged in the ecstasy of Krishna consciousness.
+I offer my respectful obeisances unto the Six Goswāmīs, namely Śrī Rūpa Goswāmī, Śrī Sanātan Goswāmī, Śrī Raghunāth Bhaṭṭa Goswāmī, Śrī Raghunāth Dās Goswāmī, Śrī Jīva Goswāmī, and Śrī Gopāl Bhaṭṭa Goswāmī, who were sometimes on the bank of the Rādhākuṇḍa lake or the shores of the Yamunā and sometimes at Vaṁśīvaṭa. There they appeared just like madmen in the full ecstasy of love for Krishna, exhibiting different transcendental symptoms in their bodies, and they were merged in the ecstasy of Krishna consciousness.
 
 #### 8
 
@@ -79,6 +79,6 @@ I offer my respectful obeisances unto the Six Goswāmīs, namely Śrī Rūpa Gos
     vande rūpa-sanātanau raghu-yugau śrī-jīva-gopālakau
 
 I offer my respectful obeisances unto the Six Goswāmīs, namely Śrī Rūpa Goswāmī, Śrī Sanātan Goswāmī, Śrī Raghunāth Bhaṭṭa Goswāmī, Śrī Raghunāth Dās Goswāmī, Śrī Jīva Goswāmī, and Śrī Gopāl Bhaṭṭa Goswāmī, who were chanting very loudly everywhere in Vṛndāvan, shouting, “Queen of Vṛndāvan, Rādhārāṇī! O Lalitā! O son of Nanda Mahārāj! Where are you all now?
-166  Are you just on the hill of Govardhan, or are you under the trees on the bank of the Yamunā? Where
+Are you just on the hill of Govardhan, or are you under the trees on the bank of the Yamunā? Where
 are you?” These were their moods in executing Krishna consciousness.
 

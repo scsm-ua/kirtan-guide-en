@@ -6,13 +6,13 @@
 
     rādhā-kṛṣṇa prāṇa mora jugala-kiśora jīvane maraṇe gati āro nāhi mora
 
-The youthful Divine Couple Śrī Śrī Rādhā and Krish- na are my life and soul. In life or death I have no other refuge but Them.
+The youthful Divine Couple Śrī Śrī Rādhā and Krishna are my life and soul. In life or death I have no other refuge but Them.
 
 #### 2
 
     kālindīra kūle keli-kadambera bon ratana-bedira upara bosābo du’jon
 
-I shall install the Divine Couple on a jewelled throne in a pleasant forest of kadamba trees on the shore of the Ya- munā river.
+I shall install the Divine Couple on a jewelled throne in a pleasant forest of kadamba trees on the shore of the Yamunā river.
 
 #### 3
 
@@ -36,5 +36,5 @@ When, following the orders of Lalitā, Viśākhā and the other gopīs , will I 
 
     śrī-kṛṣṇa-chaitanya-prabhur dāser anudāsa sevā abhilāṣa kore narottama-dāsa
 
-Narottam Dās, the servant of the servant of Śrī Krish- na Chaitanya Mahāprabhu, longs for this service to the Di- vine Couple.
+Narottam Dās, the servant of the servant of Śrī Krishna Chaitanya Mahāprabhu, longs for this service to the Divine Couple.
 

@@ -3,7 +3,7 @@
     śrīmān rāsa-rasārambhī vaṁśī-vaṭa-taṭa-sthitaḥ
     karṣan veṇu-svanair gopīr gopīnāthaḥ śriye ’stu naḥ
 
-Śrī Gopīnāth, who instigates the exchange of devo- tional mellows, is standing upon the banks of the Ya- munā River at the special place known as Vaṁśīvaṭa. There, the sweet tune of His flute is naturally attracting the hearts of the cowherd maidens of Vraja Dhām. May that charming Lord bring us within His auspicious em- brace.
+Śrī Gopīnāth, who instigates the exchange of devotional mellows, is standing upon the banks of the Yamunā River at the special place known as Vaṁśīvaṭa. There, the sweet tune of His flute is naturally attracting the hearts of the cowherd maidens of Vraja Dhām. May that charming Lord bring us within His auspicious embrace.
 
     vṛndāyai tulasī-devyai
     priyāyai keśavasya cha kṛṣṇa-bhakti-prade devi
@@ -14,7 +14,7 @@ I eternally offer my respects unto Śrī Vṛndādevī, Śrīmatī Tulasī Mahā
     atha natvā mantra-gurūn gurūn bhāgavatārthadān
     vyāsān jagat-gurūn natvā tato jayam udīrayet
 
-Then, let me bow down before all my spiritual mas- ters: the guru who gave me the divine mantra, as well as all those who have taught me the meaning of Śrīmad Bhāgavatam. Let me offer my respectful obeisances unto Śrīla Vyāsadeva, the spiritual master of the entire uni- verse and the giver of the all-conquering conclusions of Śrīmad Bhāgavatam.
+Then, let me bow down before all my spiritual masters: the guru who gave me the divine mantra, as well as all those who have taught me the meaning of Śrīmad Bhāgavatam. Let me offer my respectful obeisances unto Śrīla Vyāsadeva, the spiritual master of the entire universe and the giver of the all-conquering conclusions of Śrīmad Bhāgavatam.
 
     jayaḥ sa-parikara śrī-śrī-guru-gaurāṅga-gāndharvā-gov- indasundar-pādapadmānāṁ jayastu!
 

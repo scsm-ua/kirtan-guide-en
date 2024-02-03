@@ -7,7 +7,7 @@
     gaurāṅgera duṭi pada,    jār dhana sampada, se jāne bhakati-rasa-sār
     gaurāṅgera madhura-līlā,   jār karṇe praveśilā, hṛdoya nirmala bhelo tār
 
-Anyone who has accepted the two lotus feet of Lord Chaitanya can understand the true essence of de- votional service. Whoever hears of the sweet Pastimes of Lord Chaitanya, their heart will become pure.
+Anyone who has accepted the two lotus feet of Lord Chaitanya can understand the true essence of devotional service. Whoever hears of the sweet Pastimes of Lord Chaitanya, their heart will become pure.
 
 #### 2
 
@@ -29,6 +29,6 @@ By considering the associates of Lord Gaurāṅga to be eternally perfect, one c
     gṛhe vā vanete thāke, ‘hā gaurāṅga’ bo’le ḍāke, narottama māge tāra saṅga
 
 Whoever dives into the waves of the nectarean
-ocean of love of Lord Gaurāṅga becomes an inti- mate associate of Śrī Śrī Rādhā-Mādhava. Whether
-one lives in a house or in the forest, if they chant ‘Oh Lord Gaurāṅga!’ Narottam Dās begs to attain their asso- ciation.
+ocean of love of Lord Gaurāṅga becomes an intimate associate of Śrī Śrī Rādhā-Mādhava. Whether
+one lives in a house or in the forest, if they chant ‘Oh Lord Gaurāṅga!’ Narottam Dās begs to attain their association.
 

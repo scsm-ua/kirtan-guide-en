@@ -12,7 +12,7 @@ All glories, all glories, all glories to Śrīla Bhakti Siddhānta Saraswatī �
 
     prakāśile gaura-sevā bhūvana maṅgala bhakatisiddhānta śuddha prajñāna ujjvala
 
-You  manifested  devotional  service  to  Lord Gaurāṅga, which is beneficial to the whole universe. Your pure devotional conclusions are effulgent with Ab- solute Knowledge.
+You  manifested  devotional  service  to  Lord Gaurāṅga, which is beneficial to the whole universe. Your pure devotional conclusions are effulgent with Absolute Knowledge.
 
 #### 3
 
@@ -25,7 +25,7 @@ All glories to Śrī Rādhā and Śyāma (Krishna) who are combined in the one b
 
     vraja rasa nava bhāve nabadvīpe rāje udāre madhura rāga abhinava sāje
 
-The mellow of Vraja (Vṛndāvan) is present in Nabadwīp in a new mood; when this sweet loving senti- ment is mixed with magnanimity, then it shows itself as uniquely beautiful.
+The mellow of Vraja (Vṛndāvan) is present in Nabadwīp in a new mood; when this sweet loving sentiment is mixed with magnanimity, then it shows itself as uniquely beautiful.
 
 #### 5
 
@@ -67,7 +67,7 @@ By the Lord’s divine arrangement, the Supreme Savior of the fallen souls appea
 
     e-rūpa ārati brahmā śambhu agochara gaura bhakta kṛpā pātra mātra siddhi sāra
 
-This type of divine worship of Mahāprabhu is be- yond the vision of even Lord Brahmā or Lord Shiva. Only by receiving the mercy of a devotee of Lord Gaurāṅga can one attain such perfection.
+This type of divine worship of Mahāprabhu is beyond the vision of even Lord Brahmā or Lord Shiva. Only by receiving the mercy of a devotee of Lord Gaurāṅga can one attain such perfection.
 śrī svarūpa, rāmānanda, rūpa, sanātana
 
 #### 12
@@ -80,5 +80,5 @@ Only by the mercy of Śrī Swarūp Dāmodar, Śrī Rāmananda Rāya, Śrī Rūpa
 
     jaya guru-gaura-rādhā-govinda-sundara jaya dāo bhakta vṛnda nitya nirantara
 
-All glories to Śrī Guru, Gaurāṅga, Rādhā- Govindasundar. O devotees, always sing Their eternal glories.
+All glories to Śrī Guru, Gaurāṅga, RādhāGovindasundar. O devotees, always sing Their eternal glories.
 

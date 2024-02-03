@@ -12,7 +12,7 @@ O Lord Hari, O Lord Krishna, I offer my obeisances to You, who are known as Yād
 
     gopāla govinda rāma śrī madhusūdana giridhārī gopīnātha madana-mohana
 
-O Gopāla, Govinda, Rāma, Śrī Madhusūdan, Gi- ridhārī, Gopīnāth, Madana-mohan!
+O Gopāla, Govinda, Rāma, Śrī Madhusūdan, Giridhārī, Gopīnāth, Madana-mohan!
 
 #### 3
 
@@ -30,7 +30,7 @@ Allgloriesto Śrī Rūpa Goswāmī, Sanātan Goswāmī, Raghunāth Bhaṭṭa Go
 
     ei choy gosāir kori charaṇa vandana jāhā hoite bighna-nāś abhīṣṭa pūraṇa
 
-I offer my obeisances to the Six Goswāmīs. By of- fering them my obeisances all obstacles to devotion are destroyed and all spiritual desires are fulfilled.
+I offer my obeisances to the Six Goswāmīs. By offering them my obeisances all obstacles to devotion are destroyed and all spiritual desires are fulfilled.
 
 #### 6
 
@@ -49,14 +49,14 @@ This is my desire, that birth after birth I may live with those devotees who ser
 
     ei choy gosāi jabe vraje koilā vāsa rādhā-kṛṣṇa-nitya-līlā korilā prakāśa
 
-When these six Goswāmīs lived in Vraja they re- vealed and explained the eternal Pastimes of Rādhā and Krishna.
+When these six Goswāmīs lived in Vraja they revealed and explained the eternal Pastimes of Rādhā and Krishna.
 
 #### 9
 
     ānande bolo hari bhaja vṛndāvana
     śrī-guru-vaiṣṇava-pade majāiyā mana
 
-Absorbing your mind in meditation upon the di- vine feet of the Spiritual Master and the holy Vaiṣṇavas, chant the names of Lord Hari in ecstasy, and worship the transcendental realm of Vṛndāvan.
+Absorbing your mind in meditation upon the divine feet of the Spiritual Master and the holy Vaiṣṇavas, chant the names of Lord Hari in ecstasy, and worship the transcendental realm of Vṛndāvan.
 
 #### 10
 

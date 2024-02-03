@@ -4,7 +4,7 @@
 
     namo namaḥ tulasī mahārāṇī, vṛnde mahārāṇī namo namaḥ
 
-O Tulasī Mahārāṇī, O Vṛnda Devī, I offer my obei- sances unto you again and again.
+O Tulasī Mahārāṇī, O Vṛnda Devī, I offer my obeisances unto you again and again.
 
 #### 1
 
@@ -23,7 +23,7 @@ By seeing or touching you all sins are destroyed. Your glories are sung in the V
     jāko patra, mañjarī komala
     śrī-pati-charaṇa-kamale lapaṭāni dhanya tulasi, pūraṇa tapa kiye, śrī-śālagrāma-mahā-pāṭarāṇī
 
-Your leaves and soft mañjarīs are entwined at the lotus feet of Lord Nārāyaṇa. O Tulasī by your perfor- mance of austerity you have become the worshipful con- sort of Śrī Śālagrām Śila.
+Your leaves and soft mañjarīs are entwined at the lotus feet of Lord Nārāyaṇa. O Tulasī by your performance of austerity you have become the worshipful consort of Śrī Śālagrām Śila.
 
 #### 4
 

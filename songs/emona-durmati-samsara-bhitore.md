@@ -22,7 +22,7 @@ He saw me so fallen and wretched, took pity, and came to me saying, “O humbled
     tomāre tārite, śrī-kṛṣṇa-chaitanya, nabadvīpe avatār
     tomā heno koto, dīna hīna jone, korilena bhava-pār
 
-“Śrī Krishna Chaitanya has appeared in the land of Nabadwīp to deliver you. He has safely conducted many miserable souls such as you across the sea of worldly ex- istence.”
+“Śrī Krishna Chaitanya has appeared in the land of Nabadwīp to deliver you. He has safely conducted many miserable souls such as you across the sea of worldly existence.”
 
 #### 4
 
@@ -30,7 +30,7 @@ He saw me so fallen and wretched, took pity, and came to me saying, “O humbled
     rukma-varṇa vipra-suta mahāprabhu nāme, nadīyā mātāya,
     soṅge bhāi avadhūta
 
-“To fulfil the promise of the Vedas, the son of a *brāhmaṇ* , bearing the Name Mahāprabhu of golden com- plexion, has descended with His brother, the avadhūt Ni- tyānanda. Together They have overwhelmed all of Nadia with divine ecstasy.
+“To fulfil the promise of the Vedas, the son of a *brāhmaṇ* , bearing the Name Mahāprabhu of golden complexion, has descended with His brother, the avadhūt Nityānanda. Together They have overwhelmed all of Nadia with divine ecstasy.
 
 #### 5
 

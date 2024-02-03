@@ -7,7 +7,7 @@
     ātma-nivedana,    tuyā pade kori, hoinu parama sukhī
     duḥkha dūre gelo,   chintā nā rohilo, chaudike ānanda dekhi
 
-I have become supremely joyful by surrendering myself at Your holy feet. Unhappiness has gone away, and there are no more anxieties. I see joy in all direc- tions.
+I have become supremely joyful by surrendering myself at Your holy feet. Unhappiness has gone away, and there are no more anxieties. I see joy in all directions.
 
 #### 2
 
@@ -35,12 +35,12 @@ Troubles encountered in Your service shall be the cause of great happiness, for 
     pūrva itihāsa,    bhulinu sakala, sevā-sukha pe’ye mane
     āmi to’ tomāra,     tumi to’ āmāra, ki kāja apara dhane
 
-I have completely forgotten all past history by feeling great joy in my mind. I am most certainly Yours, and You are indeed mine. What need is there of any oth- er treasure?
+I have completely forgotten all past history by feeling great joy in my mind. I am most certainly Yours, and You are indeed mine. What need is there of any other treasure?
 
 #### 6
 
     bhakativinoda,   ānande ḍubiyā, tomāra sevāra tore
     saba cheṣṭā kore,   tava ichā-mata, thākiyā tomāra ghore
 
-Bhakti Vinod, diving into the ocean of bliss, de- votes all his efforts for Your service and dwells in Your house according to Your wishes.
+Bhakti Vinod, diving into the ocean of bliss, devotes all his efforts for Your service and dwells in Your house according to Your wishes.
 

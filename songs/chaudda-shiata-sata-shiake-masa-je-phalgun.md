@@ -6,19 +6,19 @@
 
     chaudda-śata sāta-śake māsa je phālgun paurṇamāsīra sondhyā-kāle hoile śubha-kṣaṇ
 
-Thus in the year 1407 of the Śaka Era (A.D. 1486), in the month of Phālguna [March-April], on the evening of the full moon, the desired auspicious moment ap- peared.
+Thus in the year 1407 of the Śaka Era (A.D. 1486), in the month of Phālguna [March-April], on the evening of the full moon, the desired auspicious moment appeared.
 
 #### 90
 
     siṁha-rāśi, siṁha-lagna, ucha graha-goṇ ṣaḍa-varga, aṣṭa-varga, sarva sulakṣaṇ
 
-According to the Jyotir-veda, or Vedic astronomy, when the figure of the lion appears both in the zodiac and the time of birth [ *lagna* ], this indicates a very high conjunction of planets, an area under the influence of *ṣaḍa-varga* and *aṣṭa-varga* , which are all-auspicious mo- ments.
+According to the Jyotir-veda, or Vedic astronomy, when the figure of the lion appears both in the zodiac and the time of birth [ *lagna* ], this indicates a very high conjunction of planets, an area under the influence of *ṣaḍa-varga* and *aṣṭa-varga* , which are all-auspicious moments.
 
 #### 91
 
     a-kalaṅka gaurachandra dilā daraśan sa-kalaṅka chandre āro kon prayojan
 
-When the spotless moon of Śrī Chaitanya Mahāpra- bhu became visible, what would be the need for a moon full of black marks on its body?
+When the spotless moon of Śrī Chaitanya Mahāprabhu became visible, what would be the need for a moon full of black marks on its body?
 
 #### 92
 
@@ -30,7 +30,7 @@ Considering this, Rāhu, the black planet, covered the full moon, and immediatel
 
     jaya jaya dhvani hoilo sakala bhuvan chamatkāra hoiyā lok bhāve mone mon
 
-All people thus chanted the Holy Names during the lunar eclipse, and their minds were struck with won- der.
+All people thus chanted the Holy Names during the lunar eclipse, and their minds were struck with wonder.
 
 #### 94
 
@@ -43,7 +43,7 @@ When the whole world was thus chanting the Holy Names “Hari! Hari!” Krishna 
     prasanna ho-ilo sob jagatera mon
     ‘hari’ boli’ hinduke hāsya karaye javan
 
-The whole world was pleased. While the Hindus chanted the Holy Name of the Lord, the non-Hindus, es- pecially the Muslims, jokingly imitated the words.
+The whole world was pleased. While the Hindus chanted the Holy Name of the Lord, the non-Hindus, especially the Muslims, jokingly imitated the words.
 
 #### 96
 
@@ -55,42 +55,42 @@ All the ladies vibrated the Holy Name and chanted “huli huli huli!!!”, while
 
     prasanna hoilo doś dik, prasanna nadījol sthāvara-jaṅgama hoilo ānande vihval
 
-In this atmosphere, all the ten directions became jubilant, as did the waves of the rivers. Moreover, all be- ings, moving and nonmoving, were overwhelmed with transcendental bliss.
+In this atmosphere, all the ten directions became jubilant, as did the waves of the rivers. Moreover, all beings, moving and nonmoving, were overwhelmed with transcendental bliss.
 
 #### 98
 
     nadīyā-udayagiri,   pūrṇachandra gaurahari, kṛpā kori’ ho-ilo udoy
     pāpa-tamaḥ hoilo nāśa,    tri-jagatera ullāsa, jagabhari’ hari-dhvani hoy
 
-By His causeless mercy the full moon, Gaurahari, rose in the district of Nadia, which is compared to Udayagiri, where the sun first becomes visible. His rising in the sky dis- sipated the darkness of sinful life, and thus the three worlds became joyful and chanted the Holy Name of the Lord.
+By His causeless mercy the full moon, Gaurahari, rose in the district of Nadia, which is compared to Udayagiri, where the sun first becomes visible. His rising in the sky dissipated the darkness of sinful life, and thus the three worlds became joyful and chanted the Holy Name of the Lord.
 
 #### 99
 
     sei-kāle nijāloya,    uṭhiyā advaita rāya nṛtya kore ānandita-mone
     haridāse loyā saṅge,  huṅkāra-kīrtana-raṅge kene nāche, keho nāhi jāne
 
-At that time Śrī Advaita Āchārya, in His own house at Shantipur, was dancing in a happy mood. Tak- ing Haridās Ṭhākur with Him, they danced and loudly chanted the Holy Names of the Lord. But why they were dancing, no one could understand.
+At that time Śrī Advaita Āchārya, in His own house at Shantipur, was dancing in a happy mood. Taking Haridās Ṭhākur with Him, they danced and loudly chanted the Holy Names of the Lord. But why they were dancing, no one could understand.
 
 #### 100
 
     dekhi’ uparāga hāsi’,  śīghra gaṅgā-ghāṭe āsi’ ānande korilo gaṅgā-snāna
     pāyā uparāga-chole,    āpanāra mano-bole, brāhmaṇere dilo nānā dāna
 
-Seeing the lunar eclipse and laughing, both Advai- ta Āchārya and Haridās Ṭhākur immediately went to the bank of the Ganges to bathe in that sacred river in great jubilation. Taking advantage of the occasion of the lunar eclipse, Advaita Āchārya, in His mind offered various kinds of charity to the *brāhmaṇs* .
+Seeing the lunar eclipse and laughing, both Advaita Āchārya and Haridās Ṭhākur immediately went to the bank of the Ganges to bathe in that sacred river in great jubilation. Taking advantage of the occasion of the lunar eclipse, Advaita Āchārya, in His mind offered various kinds of charity to the *brāhmaṇs* .
 
 #### 101
 
     jagata ānandamoy,   dekhi’ mone sa-vismoy ṭhāreṭhore kohe haridāsa
     tomāra aichana raṅga,  mora mon parasanna, dekhi—kichu kārjye āche bhāsa
 
-When he saw that the whole world was jubilant, Haridās Ṭhākur, his mind astonished, directly and in- directly expressed himself to Advaita Āchārya: “Your dancing and distributing charity are very pleasing to me. I can understand that there is some special purpose in these actions.”
+When he saw that the whole world was jubilant, Haridās Ṭhākur, his mind astonished, directly and indirectly expressed himself to Advaita Āchārya: “Your dancing and distributing charity are very pleasing to me. I can understand that there is some special purpose in these actions.”
 
 #### 102
 
     āchāryaratna, śrīvāsa,  hoilo mone sukhollāsa jāi’ snāna koilo gaṅgā-jole
     ānande vihvala mon,  kore hari-saṅkīrtana nānā dāna koilo mano-bole
 
-Āchāryaratna and Śrīvās Ṭhākur were over- whelmed with joy, and immediately they also went to the bank of the Ganges to bathe there. Their minds full of happiness, they chanted the Holy Names of Hari and in their minds also meditated and offered charity.
+Āchāryaratna and Śrīvās Ṭhākur were overwhelmed with joy, and immediately they also went to the bank of the Ganges to bathe there. Their minds full of happiness, they chanted the Holy Names of Hari and in their minds also meditated and offered charity.
 
 #### 103
 
@@ -104,7 +104,7 @@ In this way all the devotees, wherever they were situated, in every city and eve
     brāhmaṇa-sajjana-nārī, nānā-dravye thālī bhori’ āilā sobe jautuka lo-iyā
     jena kā̐chā-soṇā-dyuti,  dekhi’ bālakera mūrti, āśīrvāda kore sukha pāyā
 
-Many respectful *brāhmaṇ* gentlemen and ladies, carrying plates filled with various gifts, came with their presentations. Seeing the newborn child, whose form re- sembled shining gold, all of them with happiness offered their blessings.
+Many respectful *brāhmaṇ* gentlemen and ladies, carrying plates filled with various gifts, came with their presentations. Seeing the newborn child, whose form resembled shining gold, all of them with happiness offered their blessings.
 
 #### 105
 
@@ -118,8 +118,8 @@ Sāvitrī, Gaurī, Śachī, Rambhā, Arundhatī and all the celestial ladies als
     antarīkṣe deva-goṇ, gandharva, siddha, chāraṇa, stuti-nṛtya kore vādya-gīta
     nartaka, vādaka, bhāṭa,  navadvīpe jāra nāṭa, sobe āsi’ nāche pāyā prīta
 
-All the inhabitants of the heavenly planets, includ- ing the Gandharvas, Siddhas, the residents of Chāraṇalo- ka, offered their prayers, sang and danced, accompanied by the sound of musical instruments and the beating of
-drums. Also, in the holy town of Navadwīp, danc- ers, musicians, and poets gathered together, and
+All the inhabitants of the heavenly planets, including the Gandharvas, Siddhas, the residents of Chāraṇaloka, offered their prayers, sang and danced, accompanied by the sound of musical instruments and the beating of
+drums. Also, in the holy town of Navadwīp, dancers, musicians, and poets gathered together, and
 began to celebrate the Lord’s appearance.
 
 #### 107
@@ -127,7 +127,7 @@ began to celebrate the Lord’s appearance.
     kebā āse kebā jāya,   kebā nāche kebā gāya, sambhālite nāre kāra bolo
     khaṇḍileka duḥkha-śoka, pramoda-pūrita loka, miśra hoilā ānande vihvala
 
-No one could understand who was coming and who was going, who was dancing and who was singing. Nor could they understand each other’s language. But in effect all unhappiness and lamentation were immediately dissi- pated, and people became joyous. Jagannāth Miśra, the father of Gaurahari, was completely overwhelmed with happiness.
+No one could understand who was coming and who was going, who was dancing and who was singing. Nor could they understand each other’s language. But in effect all unhappiness and lamentation were immediately dissipated, and people became joyous. Jagannāth Miśra, the father of Gaurahari, was completely overwhelmed with happiness.
 
 #### 108
 
@@ -141,29 +141,28 @@ Chandraśekhar Āchārya and Śrīvas Ṭhākur both came to the house of Jagann
     jautuka pāilo jata,   ghore vā āchilo kata, sob dhon vipre dilo dāna
     jata nartaka, gāyan,     bhāṭa, akiñchana jon, dhon diyā koilo sabāra māna
 
-Whatever riches Jagannāth Miśra had collected in the form of gifts and presents, and whatever he had in his house, he distributed among the *brāhmaṇs* , singers, dancers, poets and the poor. He honored them all by giv- ing them riches in charity.
+Whatever riches Jagannāth Miśra had collected in the form of gifts and presents, and whatever he had in his house, he distributed among the *brāhmaṇs* , singers, dancers, poets and the poor. He honored them all by giving them riches in charity.
 
 #### 110
 
     śrīvāsera brāhmaṇī,    nāma tā̐ra ‘mālinī’, āchāryaratnera patnī-soṅge
     sindūra, haridrā, toilo,   khoi, kalā, nānā phol, diyā pūje nārīgoṇa roṅge
 
-The wife of Śrīvas Ṭhākur, whose name was Mālinī, accompanied by the wife of Chan-
-draśekhar and other ladies, came there in great happi- ness to worship the baby with such articles as vermilion, turmeric, scented oil, a kind of puffed rice called *khoi* , bananas and coconuts.
+The wife of Śrīvas Ṭhākur, whose name was Mālinī, accompanied by the wife of Chandraśekhar and other ladies, came there in great happiness to worship the baby with such articles as vermilion, turmeric, scented oil, a kind of puffed rice called *khoi* , bananas and coconuts.
 
 #### 111
 
     advaita-āchārya-bhārjyā,  jagat-pūjitā ārjyā, nāma tā̐ra ‘sītā ṭhākurāṇī’
     āchārjyera ājñā pāyā,     gelo upahāra loyā, dekhite bālaka-śiromaṇi
 
-One day shortly after Gaurahari was born, Advai- ta Āchārya’s wife, Sītā Ṭhākurāṇī, who is worshipable by the whole world, at the request of her husband, went to see that topmost child with all kinds of gifts.
+One day shortly after Gaurahari was born, Advaita Āchārya’s wife, Sītā Ṭhākurāṇī, who is worshipable by the whole world, at the request of her husband, went to see that topmost child with all kinds of gifts.
 
 #### 112
 
     suvarṇera kaḍi-bauli,   rajatamudrā-pāśuli, suvarṇera aṅgada, koṅkoṇ
     du-bāhute divya śaṅkha,  rajatera malabaṅka, svarṇa-mudrāra nānā hāragoṇ
 
-She brought different kinds of presents made from gold, such as bracelets, coins, necklaces, ankle or- naments, a conchshell covered with gold, and other kinds of jewellery for the child.
+She brought different kinds of presents made from gold, such as bracelets, coins, necklaces, ankle ornaments, a conchshell covered with gold, and other kinds of jewellery for the child.
 
 #### 113
 
@@ -178,7 +177,7 @@ She also brought a locket with a tiger nail set in gold, belts made of silk and 
     haridrā, kuṅkuma, chandana, moṅgol-dravya pātra bhoriyā
     vastra-gupta dolā chaḍi’  soṅge loyā dāsī cheḍī, vastrālaṅkāra peṭāri bhoriyā
 
-Riding in a palanquin covered with cloth and accompanied by maidservants, Sītā Ṭhākurāṇī came to the house of Jagannāth Miśra, bringing with her many auspi - cious articles such as *durvā* grass, rice paddy, turmeric, kum- kum and sandalwood. All these presentations filled a large basket.
+Riding in a palanquin covered with cloth and accompanied by maidservants, Sītā Ṭhākurāṇī came to the house of Jagannāth Miśra, bringing with her many auspi - cious articles such as *durvā* grass, rice paddy, turmeric, kumkum and sandalwood. All these presentations filled a large basket.
 
 #### 115
 
@@ -206,14 +205,14 @@ She blessed the newly born child by placing fresh *durva* grass and paddy on His
     putramātā-snānadine,   dilo vastra vibhūṣaṇe, putra-saha miśrere sammāni’
     śachī-miśrera pūjā loyā,  monete hariṣa hoyā, ghore āilā sitā ṭhākurāṇī
 
-Sītā Ṭhākurāṇī gave gifts to the mother and child, at the time of His birth and when the child was brought from the residence where He was born back to the home of Jagannāth Miśra. Then Sītā Ṭhākurāṇī, being hon- oured by mother Śachī Devī and Jagannāth Miśra, re- turned to her own home in Shantipur.
+Sītā Ṭhākurāṇī gave gifts to the mother and child, at the time of His birth and when the child was brought from the residence where He was born back to the home of Jagannāth Miśra. Then Sītā Ṭhākurāṇī, being honoured by mother Śachī Devī and Jagannāth Miśra, returned to her own home in Shantipur.
 
 #### 119
 
     aiche śachī-jagannāth,  putra pāyā lakṣmīnāth, pūrṇa hoilo sakala vāñchito
     dhon-dhānye bhore ghora, lokamānya kalevara, dine dine hoy ānandito
 
-In this way, Śachī Devī and Jagannāth Miśra, hav- ing obtained a son who was the husband of the goddess of fortune, had all their desires fulfilled. Their house was always filled with riches and grains. As they looked upon the beloved body of the Lord, day after day their happi- ness increased.
+In this way, Śachī Devī and Jagannāth Miśra, having obtained a son who was the husband of the goddess of fortune, had all their desires fulfilled. Their house was always filled with riches and grains. As they looked upon the beloved body of the Lord, day after day their happiness increased.
 
 #### 120
 
@@ -228,7 +227,7 @@ Jagannāth Miśra was an ideal Vaiṣṇava, a devotee of the Lord. He was peace
     mahāpuruṣera chihna,   lagne aṅge bhinna bhinna, dekhi, — ei tāribe saṁsāre
 
 After calculating the astrological chart for the child, Gaurahari, Nīlāmbar Chakravartī privately said to
-Jagannāth Miśra that he saw all the different aus- picious symptoms of a great personality in both the body and horoscope of the child. He revealed that in the
+Jagannāth Miśra that he saw all the different auspicious symptoms of a great personality in both the body and horoscope of the child. He revealed that in the
 future this child would deliver the whole universe.
 
 #### 122
@@ -236,14 +235,14 @@ future this child would deliver the whole universe.
     aiche prabhu śachī-ghore,  kṛpāy koilo avatāre jei ihā karaye śravaṇa
     gaura-prabhu dayāmoy,  tā̐re hoyena sadoy, sei pāya tā̐hāra charaṇa
 
-In this way the Lord, out of His causeless mercy, made His advent in the house of Śachī Devī. The Lord, Gaurahari, is very merciful to anyone who hears this nar- ration of His birth, and gives that person the shelter of His lotus feet.
+In this way the Lord, out of His causeless mercy, made His advent in the house of Śachī Devī. The Lord, Gaurahari, is very merciful to anyone who hears this narration of His birth, and gives that person the shelter of His lotus feet.
 
 #### 123
 
     pāiyā mānuṣa janma,  je nā śune gaura-guṇa, heno janma tāra vyartha hoilo
     pāiyā amṛtadhunī,    piye viṣa-garta-pāni janmiyā se kene nāhi moilo
 
-Anyone who attains a human birth but does not have the opportunity to hear of Gaurahari is unfortunate. Instead of drinking nectar from the river of devotional ser- vice, if one drinks from the poisoned well of mundane hap- piness, it would have been better to not have lived at all.
+Anyone who attains a human birth but does not have the opportunity to hear of Gaurahari is unfortunate. Instead of drinking nectar from the river of devotional service, if one drinks from the poisoned well of mundane happiness, it would have been better to not have lived at all.
 
 #### 124
 

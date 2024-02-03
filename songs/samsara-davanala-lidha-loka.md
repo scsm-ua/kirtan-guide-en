@@ -32,7 +32,7 @@ who fully satisfies the devotees of Śrī Krishna with four types of nectarean p
 
     śrī-rādhikā-mādhavayor apara mādhurya-līlā-guṇa-rūpa-nāmnām prati-kṣaṇāsvādana-lolupasya vande guroḥ śrī-charaṇaravindam
 
-I worship the lotus feet of the Divine Master, whose heart is insatiably desirous of tasting the infinite Holy Names, Forms, Qualities and Pastimes of Śrī Rādhā-Mādhava that are full of the sweetness of love di- vine.
+I worship the lotus feet of the Divine Master, whose heart is insatiably desirous of tasting the infinite Holy Names, Forms, Qualities and Pastimes of Śrī Rādhā-Mādhava that are full of the sweetness of love divine.
 
 #### 6
 
@@ -44,7 +44,7 @@ I worship the lotus feet of the Divine Master, who is extremely dear to the Supr
 
     sākṣād-dharitvena samasta-śāstrair uktas tathā bhāvyata eva sadbhiḥ kintu prabhor yaḥ priya eva tasya vande guroḥ śrī-charaṇāravindam
 
-I worship the lotus feet of the Divine Master (who is the simultaneously inconceivably distinct and non- distinct manifest embodiment of the Supreme Personality of Godhead): all the Scriptures sing the glories of his being the direct non-different form of the Supreme Lord Śrī Hari, and the pure saints also concede this; yet, he is the most beloved of the Lord.
+I worship the lotus feet of the Divine Master (who is the simultaneously inconceivably distinct and nondistinct manifest embodiment of the Supreme Personality of Godhead): all the Scriptures sing the glories of his being the direct non-different form of the Supreme Lord Śrī Hari, and the pure saints also concede this; yet, he is the most beloved of the Lord.
 
 #### 8
 
@@ -57,5 +57,5 @@ I worship the lotus feet of the Divine Master, ever singing his glories and medi
 
     śrīmad guroraṣṭakam etad uchair brāhme muhūrte paṭhati prayātnāt yas tena vṛndāvana-nātha-sākṣāt- sevaiva labhyā januṣo ’nta eva
 
-One who, during the Brāhma-muhūrta (ninty- six minutes before sunrise) with meticulous regularity wholeheartedly sings these eight prayers to the Divine Master, attains, upon leaving the body in his spiritual perfection, the qualification to engage in the direct ser- vice of the Lord of Vṛndāvan.
+One who, during the Brāhma-muhūrta (nintysix minutes before sunrise) with meticulous regularity wholeheartedly sings these eight prayers to the Divine Master, attains, upon leaving the body in his spiritual perfection, the qualification to engage in the direct service of the Lord of Vṛndāvan.
 

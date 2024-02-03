@@ -7,14 +7,14 @@
     parama karuṇa,     pahu̐ dūi jana, nitāi gaurachandra
     saba avatāra-       sāra śiromaṇi, kevala ānanda-kanda
 
-Lord Nitāi and Lord Gaurachandra, are the two most merciful lords. They are the crest-jewels of all incar- nations and the only source of transcendental ecstatic joy.
+Lord Nitāi and Lord Gaurachandra, are the two most merciful lords. They are the crest-jewels of all incarnations and the only source of transcendental ecstatic joy.
 
 #### 2
 
     bhaja bhaja bhāi, chaitanya nitāi, sudṛḍha biśvāsa kori’
     viṣoya chāḍiyā,      se rase majiyā mukhe bolo hari hari
 
-O brother! I implore you to worship Śrī Chait- anya-Nitāi with firm faith. Give up your attachment to sense gratification and merge into this nectar by chanting the Names of Hari.
+O brother! I implore you to worship Śrī Chaitanya-Nitāi with firm faith. Give up your attachment to sense gratification and merge into this nectar by chanting the Names of Hari.
 
 #### 3
 

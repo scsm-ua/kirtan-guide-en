@@ -6,7 +6,7 @@
 
     kali-kukkura-kadana jadi chāo he kaliyuga-pāvana    kali-bhaya-nāśana, śrī śachī-nandana gāo he
 
-Oh mind, you are like a miserable dog of Kali-yu- ga! If you want deliverance, then sing the Holy Name of the son of Śachī, for He is the saviour and destroyer of fear in this dark age of Kali.
+Oh mind, you are like a miserable dog of Kali-yuga! If you want deliverance, then sing the Holy Name of the son of Śachī, for He is the saviour and destroyer of fear in this dark age of Kali.
 
 #### 2
 
@@ -20,15 +20,14 @@ He is the transcendental cupid of Gadādhara, the life and soul of Nityānanda P
     nadīyā-śaśadhara  māyāpura-īśvara, nāma-prabartana-śūra
     gṛhījana-śikṣaka  nyāsikula-nāyaka, mādhava-rādhābhāva pūra
 
-He is the moon of Nadia, the Lord of Māyāpur, and heroic saviour who inaugurated the chanting of the Holy Name of Krishna. He is the teacher of all house- holders and the commander-in-chief of all *sannyāsīs* . Śrī Chaitanya Mahāprabhu is Krishna, filled with the ecstat- ic heart’s sentiment of Śrīmatī Rādhārāṇī.
+He is the moon of Nadia, the Lord of Māyāpur, and heroic saviour who inaugurated the chanting of the Holy Name of Krishna. He is the teacher of all householders and the commander-in-chief of all *sannyāsīs* . Śrī Chaitanya Mahāprabhu is Krishna, filled with the ecstatic heart’s sentiment of Śrīmatī Rādhārāṇī.
 
 #### 4
 
     sārvabhauma-śodhana gajapati-tāraṇa, rāmānanda-poṣaṇa-vīra
     rūpānanda-vardhana  sanātana pālana, haridāsa-modana-dhīra
 
-He purified Sārvabhauma Bhaṭṭāchārya and res- cued Pratāparudra Maharaj, the great king of Orissa. He is the hero and protector of Rāmānanda Rāy. He increas-
-es the ecstasy of Śrīla Rūpa Goswāmī and He is the guardian of Śrīla Sanātan Goswāmī. He delights the sober Haridās Ṭhākur.
+He purified Sārvabhauma Bhaṭṭāchārya and rescued Pratāparudra Maharaj, the great king of Orissa. He is the hero and protector of Rāmānanda Rāy. He increases the ecstasy of Śrīla Rūpa Goswāmī and He is the guardian of Śrīla Sanātan Goswāmī. He delights the sober Haridās Ṭhākur.
 
 #### 5
 

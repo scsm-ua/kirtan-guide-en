@@ -7,7 +7,7 @@
     nārada muni,       bājāya vīṇā, ‘rādhikā-ramaṇa’-nāme
     nāma amani,       udita hoya, bhakata-gīta-sāme
 
-When the great soul Nārada Muni plays his stringed vīṇā, the Holy Name of Rādhikā-Ramaṇa descends and immediately appears amidst the kīrtan of the Lord’s dev- otees.
+When the great soul Nārada Muni plays his stringed vīṇā, the Holy Name of Rādhikā-Ramaṇa descends and immediately appears amidst the kīrtan of the Lord’s devotees.
 
 #### 2
 
@@ -21,8 +21,8 @@ Like a monsoon cloud, the Holy Name showers pure nectar into their ears. All the
     mādhurī-pūra,      āsabo paśi’, mātāya jagata-jane
     keho vā kā̐de,      keho vā nāche, keho māte mane mane
 
-All the inhabitants of the universe become mad- dened upon entering these intoxicating showers of divine
-sweetness. Some people cry, some dance and oth- ers become fully intoxicated within their minds.
+All the inhabitants of the universe become maddened upon entering these intoxicating showers of divine
+sweetness. Some people cry, some dance and others become fully intoxicated within their minds.
 
 #### 4
 

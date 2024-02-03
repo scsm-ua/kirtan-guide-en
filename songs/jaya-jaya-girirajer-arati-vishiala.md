@@ -7,7 +7,7 @@
     jaya jaya girirājer ārati viśāla
     śrī gaura-maṇḍala-mājhe bhuvana-maṅgala
 
-All glories, all glories, to the grand ārati of Śrī Gi- rirāj! In the midst of Śrī Gaura M aṇḍal , it is benefitting the entire universe.
+All glories, all glories, to the grand ārati of Śrī Girirāj! In the midst of Śrī Gaura M aṇḍal , it is benefitting the entire universe.
 
 #### 2
 
@@ -31,7 +31,7 @@ The incomparable beauty of the Kuṇḍa is like a reservoir of honey. Even Lord
 
     śrī bhakti-rakṣaka deva-gosvāmī śrīdhara prakāśilā tava sevā dīpta manohara
 
-Śrīla  Bhakti  Rakṣak  Śrīdhar  Dev-Goswāmī Mahārāj has manifested the effulgent and enchanting de- votional service to You.
+Śrīla  Bhakti  Rakṣak  Śrīdhar  Dev-Goswāmī Mahārāj has manifested the effulgent and enchanting devotional service to You.
 
 #### 6
 
@@ -56,11 +56,11 @@ All glories to the hidden Govardhan, which is a reservoir of transcendental rasa
 
     kuliyā-prakāśa tava achintya-mahimā divāniśi bhakta-vṛnda kore parikramā
 
-By Your inconceivable glories and magnanimity, You have manifested Kuliyā (where all offences are for- given). Day and night, the multitudes of devotees are cir- cumambulating this place.
+By Your inconceivable glories and magnanimity, You have manifested Kuliyā (where all offences are forgiven). Day and night, the multitudes of devotees are circumambulating this place.
 
 #### 10
 
     sevya o sevaka-rūpe nitya parakāśa sānande ārati dekhe e adhama dāsa
 
-You are eternally manifested both as the worshi- pable Lord and as the servitor Lord. This fallen servant sees Your ārati with great joy.
+You are eternally manifested both as the worshipable Lord and as the servitor Lord. This fallen servant sees Your ārati with great joy.
 

@@ -7,7 +7,7 @@
     sarvasva tomāra,   charaṇe sa̐piyā, poḍechi tomāra ghore
     tumi to’ ṭhākur,    tomāra kukkur, boliyā jānaho more
 
-Now taking all that I possess and surrendering it unto Your lotus feet, O Lord, I throw myself down be- fore Your house. You are the master of the house; kindly consider me Your own dog.
+Now taking all that I possess and surrendering it unto Your lotus feet, O Lord, I throw myself down before Your house. You are the master of the house; kindly consider me Your own dog.
 
 #### 2
 
@@ -21,7 +21,7 @@ Chaining me nearby, You will maintain me, and I shall lie at Your doorstep. I wi
     tava nija-jana,    prasād seviyā, uchiṣṭa rākhibe jāhā
     āmāra bhojana,   parama-ānande, prati-dina hobe tāhā
 
-Whatever food remnants Your devotees leave be- hind after honouring Your prasād will be my daily suste- nance. I will feast on those remnants in great bliss.
+Whatever food remnants Your devotees leave behind after honouring Your prasād will be my daily sustenance. I will feast on those remnants in great bliss.
 
 #### 4
 
@@ -35,5 +35,5 @@ While sitting up or lying down, I will constantly meditate on Your lotus feet. W
     nijera poṣaṇa,     kobhu nā bhāvibo, rohibo bhāvera bhore
     bhakativinoda,    tomāra pālaka, boliyā varaṇa kore
 
-I will never even think about arranging for my own nourishment, and will remain absorbed in ever cherish- ing love for my master. Bhakti Vinod now accepts You as his only maintainer.
+I will never even think about arranging for my own nourishment, and will remain absorbed in ever cherishing love for my master. Bhakti Vinod now accepts You as his only maintainer.
 

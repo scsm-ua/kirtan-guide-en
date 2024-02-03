@@ -14,7 +14,7 @@ Oh Gopīnāth, I have no means of success, but if You take me, having bestowed Y
     gopīnāth,  poḍechi māyāra phere dhon, dārā, suta,    ghireche āmāre,
     kāmete rekheche jere
 
-Oh Gopīnāth, I have fallen into the perils of mate- rial illusion. Wealth, wife, and sons have surrounded me, and lust has wasted me away.
+Oh Gopīnāth, I have fallen into the perils of material illusion. Wealth, wife, and sons have surrounded me, and lust has wasted me away.
 
 #### 3
 
@@ -34,7 +34,7 @@ Oh Gopīnāth, I have accepted my defeat. All of my various endeavours were usel
     gopīnāth,  kemone hoibe gati prabala indriya,    bośī-bhūta mana,
     nā chāḍe viṣoya-rati
 
-Oh Gopīnāth, how shall I make any advancement when my mind has come under the control of the power- ful senses and does not abandon its attachment to mate- rialism?
+Oh Gopīnāth, how shall I make any advancement when my mind has come under the control of the powerful senses and does not abandon its attachment to materialism?
 
 #### 6
 
@@ -48,12 +48,12 @@ Oh Gopīnāth, after sitting down in the core of my heart and subduing my mind, 
     gopīnāth,  anātha dekhiyā more tumi hṛṣīkeśa,      hṛṣīka damiyā,
     tāro’ he saṁsṛti-ghore
 
-Oh Gopīnāth, You are Hṛṣīkeśa, the Lord of the senses. Seeing me so helpless, please control these sens- es of mine and deliver me from this dark and perilous worldly existence.
+Oh Gopīnāth, You are Hṛṣīkeśa, the Lord of the senses. Seeing me so helpless, please control these senses of mine and deliver me from this dark and perilous worldly existence.
 
 #### 8
 
     gopīnāth,  golāya legeche phā̐sa
     kṛpā-asi dhori,    bandhana chediyā, vinode karaho dāsa
 
-Oh Gopīnāth, the noose of materialism has be- come fixed around my neck. Taking up the sword of Your mercy and cutting this bondage, make this Bhakti Vinod Your humble servant.
+Oh Gopīnāth, the noose of materialism has become fixed around my neck. Taking up the sword of Your mercy and cutting this bondage, make this Bhakti Vinod Your humble servant.
 

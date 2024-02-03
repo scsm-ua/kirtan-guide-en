@@ -20,13 +20,13 @@ Wishing Grace Divine upon the whole of the creation, From Goloka came thee down,
 
     praphulla nalina jena hāsimākhā mukha dekhi vṛddha-bāla-juvā pāya mahā-sukha
 
-Hundred-petalled lotus flower—Lotus Face ablooming, Young and old behold thee, all their hearts’ joy overflow- ing.
+Hundred-petalled lotus flower—Lotus Face ablooming, Young and old behold thee, all their hearts’ joy overflowing.
 
 #### 4
 
     svadeśe-videśe harināmera prachāre abhinava gaura-preme bhāsāle sabāre
 
-Both home and abroad Lord’s Hallowed Name thou art apreaching, Flood of Love for Gaura entire planet inundat- ing.
+Both home and abroad Lord’s Hallowed Name thou art apreaching, Flood of Love for Gaura entire planet inundating.
 
 #### 5
 
@@ -88,6 +88,6 @@ Faithfully the true devotees sing thy Supreme Glories, Lost, deluded souls disho
 
     guru-gaura-kṛṣṇa-sevā-saubhāgya-prakāśe sānande adhama bhāse saṅkīrtana rāse
 
-By thy Grace shall we now serve our Lord and Gold- en Master, This fallen soul exults in thy Sweet Chanting
+By thy Grace shall we now serve our Lord and Golden Master, This fallen soul exults in thy Sweet Chanting
 Dance forev ∂ er. > ∂
 

@@ -12,7 +12,7 @@
 
 Śrīla Rūpa Goswāmī is the mine of the most precious treasure, the leader of the associates of Lord Chaitanya (the Divine Succession being known as the Rūpānuga Sampradāya, ‘the followers of Śrī Rūpa’). In
 the company of his brothers, he was resplendent in (the province of) Gauḍa, causing the fervent twin
-bumblebees in the form of the lotus eyes of Śrī Chait- anyadev to drink nectar, as the Lord’s lotus feet moved on the pretext of visiting Vṛndāvan. When will that Śrī- mad Rūpa Prabhu grace me with the dust of his holy feet?
+bumblebees in the form of the lotus eyes of Śrī Chaitanyadev to drink nectar, as the Lord’s lotus feet moved on the pretext of visiting Vṛndāvan. When will that Śrīmad Rūpa Prabhu grace me with the dust of his holy feet?
 
 #### 2
 
@@ -44,7 +44,7 @@ Intoxicated with divine love, dancing, He melted the hearts of hundreds of faith
     sa śrī-rūpaḥ kadā māṁ nija-pada-rajasā
     bhūṣitaṁ saṁvidhatte
 
-At the sacred spot on the confluence of the Gaṅgā and the Yamunā, Śrī Rūpa achieved intimate union with the lotus feet of the dearmost Lord of his life—the Lord who is Krishna within and Gaura without. In grave humil- ity, with straw in mouth and with tears of sorrow, he along with his younger brother worshipped Śrī Gaura-Krishna in intense love. When will that Śrī Rūpa Prabhu grace me with the dust of his holy lotus feet?
+At the sacred spot on the confluence of the Gaṅgā and the Yamunā, Śrī Rūpa achieved intimate union with the lotus feet of the dearmost Lord of his life—the Lord who is Krishna within and Gaura without. In grave humility, with straw in mouth and with tears of sorrow, he along with his younger brother worshipped Śrī Gaura-Krishna in intense love. When will that Śrī Rūpa Prabhu grace me with the dust of his holy lotus feet?
 
 #### 5
 
@@ -55,8 +55,8 @@ At the sacred spot on the confluence of the Gaṅgā and the Yamunā, Śrī Rūp
     āśliṣya gāḍhaṁ rarañje sa śrī-rūpaḥ kadā māṁ nija-pada-rajasā
     bhūṣitaṁ saṁvidhatte
 
-Śrī Chaitanyadev saw Śrī Rūpa and his younger brother rolling on the ground some distance away. Seeing His endeared one, His favourite, His love divine person- ified in natural beauty and charm, His exclusive alter ego in divine Pastimes, the Lord swiftly approached Śrī Rūpa,
-profusely singing his glories, and embraced him in ecsta- sy. When will that Śrī Rūpa Prabhu grace me with the dust of his holy lotus feet?
+Śrī Chaitanyadev saw Śrī Rūpa and his younger brother rolling on the ground some distance away. Seeing His endeared one, His favourite, His love divine personified in natural beauty and charm, His exclusive alter ego in divine Pastimes, the Lord swiftly approached Śrī Rūpa,
+profusely singing his glories, and embraced him in ecstasy. When will that Śrī Rūpa Prabhu grace me with the dust of his holy lotus feet?
 
 #### 6
 
@@ -67,7 +67,7 @@ profusely singing his glories, and embraced him in ecsta- sy. When will that Śr
     sa śrī-rūpaḥ kadā māṁ nija-pada-rajasā
     bhūṣitaṁ saṁvidhatte
 
-Śrī Gaurahari knew that (as an eternal associate of the Lord) Śrī Rūpa was already proficient in wander- ing throughout the ambrosial ocean of all mellows, in the land of unalloyed love (in Vraja-rasa). Nonetheless, to expand His own Pastimes, the Lord enabled him to drink the sweet ecstasy of servitude unto Śrī Rādhā, and em- powered him with the skill to distribute the nectar of His personal devotional service. When will that Śrīmad Rūpa Prabhu grace me with the dust of his lotus feet?
+Śrī Gaurahari knew that (as an eternal associate of the Lord) Śrī Rūpa was already proficient in wandering throughout the ambrosial ocean of all mellows, in the land of unalloyed love (in Vraja-rasa). Nonetheless, to expand His own Pastimes, the Lord enabled him to drink the sweet ecstasy of servitude unto Śrī Rādhā, and empowered him with the skill to distribute the nectar of His personal devotional service. When will that Śrīmad Rūpa Prabhu grace me with the dust of his lotus feet?
 
 #### 7
 
@@ -78,7 +78,7 @@ profusely singing his glories, and embraced him in ecsta- sy. When will that Śr
     sa śrī-rūpaḥ kadā māṁ nija-pada-rajasā
     bhūṣitaṁ saṁvidhatte
 
-When on the order of Śrī Gaurāṅga, Śrī Rūpa vis- ited Śrī Puruṣottama Kṣetra after completing the circum- ambulation of Śrī Vraja Maṇḍal, He highly gratified Śrī Chaitanyadev and the sagacious devotee assembly head- ed by Śrī Svarūp Dāmodar and Śrī Rāmānanda Rāya by his ambrosial poetry on the Pastimes of the Divine Cou- ple of Vraja. When will that Śrīmad Rūpa Prabhu grace me with the dust of his lotus feet?
+When on the order of Śrī Gaurāṅga, Śrī Rūpa visited Śrī Puruṣottama Kṣetra after completing the circumambulation of Śrī Vraja Maṇḍal, He highly gratified Śrī Chaitanyadev and the sagacious devotee assembly headed by Śrī Svarūp Dāmodar and Śrī Rāmānanda Rāya by his ambrosial poetry on the Pastimes of the Divine Couple of Vraja. When will that Śrīmad Rūpa Prabhu grace me with the dust of his lotus feet?
 
 #### 8
 
@@ -112,5 +112,5 @@ By writing many, many books, he gave the world all the most cherished desires of
     duṣṭa-buddher agṛhṇan sa śrī-rūpaḥ kadā māṁ nija-pada-rajasā
     bhūṣitaṁ saṁvidhatte
 
-Just prior to the withdrawal of his manifest līlā, my causelessly merciful Divine Master, Śrīla Saraswatī Ṭhākur, handed me over to the holy feet of that Divine Personality by having me sing the glorious prayer unto his lotus feet (Śrī Rūpa-mañjarī-pada). Despite my low- liness, when will—disregarding all my various qualifica- tions and disqualifications—Śrīmad Rūpa Prabhu grace me with the dust of his holy lotus feet?
+Just prior to the withdrawal of his manifest līlā, my causelessly merciful Divine Master, Śrīla Saraswatī Ṭhākur, handed me over to the holy feet of that Divine Personality by having me sing the glorious prayer unto his lotus feet (Śrī Rūpa-mañjarī-pada). Despite my lowliness, when will—disregarding all my various qualifications and disqualifications—Śrīmad Rūpa Prabhu grace me with the dust of his holy lotus feet?
 

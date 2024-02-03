@@ -36,19 +36,19 @@ I O Lord Your eyes are like lotus petals, and You destroy the bondage of the mat
 
     janaka-sutā-kṛta-bhūṣaṇa jita-dūṣaṇa he samara-śamita-daśa-kaṇṭha jaya jaya deva hare
 
-O Lord, as the gem of the sons of Janaka, You were victorious over all the *asuras* , and You smashed the great- est asura, the ten-headed Ravana. Glories to Lord Hari!
+O Lord, as the gem of the sons of Janaka, You were victorious over all the *asuras* , and You smashed the greatest asura, the ten-headed Ravana. Glories to Lord Hari!
 
 #### 7
 
     abhinava-jala-dhara-sundara dhṛta-mandara he śrī-mukha-chandra-chakora jaya jaya deva hare
 
-O Supreme Personality of Godhead who held the Govardhan Hill! Your complexion is like a fresh mon- soon cloud, and Śrī Rādhārāṇī is like a *chakora* bird who is nourished by drinking the light of Your moonlike face. Glories! Glories to Lord Hari.
+O Supreme Personality of Godhead who held the Govardhan Hill! Your complexion is like a fresh monsoon cloud, and Śrī Rādhārāṇī is like a *chakora* bird who is nourished by drinking the light of Your moonlike face. Glories! Glories to Lord Hari.
 
 #### 8
 
     tava charaṇaṁ praṇatā vayam iti bhāvaya he kuru kuśalaṁ praṇateṣu jaya jaya deva hare
 
-O Lord, I offer my humble obeisances at Your lo- tus feet. Please bless me by Your limitless mercy. Glories! Glories to Lord Śrī Hari!
+O Lord, I offer my humble obeisances at Your lotus feet. Please bless me by Your limitless mercy. Glories! Glories to Lord Śrī Hari!
 
 #### 9
 

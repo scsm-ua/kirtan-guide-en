@@ -24,7 +24,7 @@ With straw between His teeth, He begs all who cross his path, “Worship Lord Ga
 
     eta boli’ nityānanda bhūme goḍi jāy sonāra parvata jena dhūlāte loṭāy
 
-Saying this Nityānanda falls to the ground, appear- ing like a golden mountain rolling in the dust.
+Saying this Nityānanda falls to the ground, appearing like a golden mountain rolling in the dust.
 
 #### 5
 

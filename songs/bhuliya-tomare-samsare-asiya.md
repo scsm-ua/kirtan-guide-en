@@ -7,14 +7,14 @@
     bhuliyā tomāre,      saṁsāre āsiyā, peye nānābidha byathā
     tomāra charaṇe      āsiyāchi āmi, bolibo duḥkhera kathā
 
-O Lord, forgetting you and coming to this materi- al world, I have experienced various pains and sorrows. Now I am approaching your lotus feet to submit my tale of woe.
+O Lord, forgetting you and coming to this material world, I have experienced various pains and sorrows. Now I am approaching your lotus feet to submit my tale of woe.
 
 #### 2
 
     jananī-joṭhore,      chilāma jokhon, viṣama vandhana-pāśe
     ekabāra prabhu! dekhā diyā more, vañchile e dīna dāse
 
-While I was bound up tightly in the unbearable confines of my mother’s womb, O Lord, You once re- vealed Yourself before me, but briefly, and then aban- doned this poor servant of Yours.
+While I was bound up tightly in the unbearable confines of my mother’s womb, O Lord, You once revealed Yourself before me, but briefly, and then abandoned this poor servant of Yours.
 
 #### 3
 
@@ -44,7 +44,7 @@ Day by day I grew and soon began playing with other boys. My powers of understan
     idyāra gaurave,    bhrami deśe deśe, dhana upārjana kori’
     svajana-pālana,      kori eka mane, bhulinu tomāre, hari!
 
-Travelling from place to place, proud of my edu- cation, I grew wealthy and maintained my family with undivided attention. O Lord Hari, I forgot You!
+Travelling from place to place, proud of my education, I grew wealthy and maintained my family with undivided attention. O Lord Hari, I forgot You!
 
 #### 7
 

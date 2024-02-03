@@ -32,5 +32,5 @@ Oh Mādhava, although I have not even a sesame seed of devotion for You, Your su
     kalitādbhuta-rasa-bhāram          nivasatu nityam ihāmṛta-nindini
     vindan madhurima-sāram
 
-Oh eternal Lord, may the bumblebee of my mind, find- ing there the most wonderful sweetness, eternally stay in the honey of Your lotus feet, which rebuke the sweetest nectar.
+Oh eternal Lord, may the bumblebee of my mind, finding there the most wonderful sweetness, eternally stay in the honey of Your lotus feet, which rebuke the sweetest nectar.
 

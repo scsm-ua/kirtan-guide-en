@@ -7,7 +7,7 @@
     ṭhākura-vaiṣṇava-pada, avanīra susampada, śuno bhāi! hoiya eka mana
     āśroya loiyā bhaje,       tāre kṛṣṇa nāhi tyaje āro saba more akāraṇa
 
-O brother, hear my words with rapt attention: The lotus feet of the Vaiṣṇavas are the most valuable treasure in the world. Take shelter of those Vaiṣṇavas, and wor- ship them. Krishna cannot abandon one who worships Him in this way. All others meet a meaningless death.
+O brother, hear my words with rapt attention: The lotus feet of the Vaiṣṇavas are the most valuable treasure in the world. Take shelter of those Vaiṣṇavas, and worship them. Krishna cannot abandon one who worships Him in this way. All others meet a meaningless death.
 
 #### 2
 
@@ -21,14 +21,13 @@ The water which has washed the lotus feet of the Vaiṣṇavas bestows devotiona
     tīrthajol-pavitra-guṇe,  likhiyāche purāṇe, se saba bhaktira pravañchana
     vaiṣṇavera pādadoka,  sama nahe ei saba, jāte hoya vāñchito pūraṇa
 
-The purifying power of the waters of the vari- ous places of pilgrimage is described in the Purāṇas, al- though this is something of a deceptive trick. Actually there is nothing which is as purifying as the water which has washed the lotus feet of the Vaiṣṇavas. This water fulfills all desires.
+The purifying power of the waters of the various places of pilgrimage is described in the Purāṇas, although this is something of a deceptive trick. Actually there is nothing which is as purifying as the water which has washed the lotus feet of the Vaiṣṇavas. This water fulfills all desires.
 
 #### 4
 
     vaiṣṇava-saṅgete mana, ānandita anukṣaṇa, sadā hoy kṛṣṇa-parasaṅga
     dīna narottama kā̐de, hiyā dhairja nāhi bāndhe, mora dośā keno hoilo bhaṅga
 
-Moment by moment my mind finds constant plea-
-sure in the association of the Vaiṣṇavas. I always seek the company of the devotees of Lord Krishna.
+Moment by moment my mind finds constant pleasure in the association of the Vaiṣṇavas. I always seek the company of the devotees of Lord Krishna.
 Poor-hearted Narottam Dās cries, “I cannot maintain my composure any longer. Why have I fallen into such a low condition of life that I cannot get the association of the Vaiṣṇavas?”
 
