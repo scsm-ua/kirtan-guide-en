@@ -25,7 +25,7 @@ Lord Gaurāṅga calls, “Wake up, sleeping souls! Wake up, sleeping souls! You
 
     enechi auṣadhi māyā nāśibāro lāgi’ hari-nāma mahā-mantra lao tumi māgi’
 
-“I have brought the medicine for destroying the illusion of māyā . Now pray for this Hari-nāma-mahāmantra and take it.”
+“I have brought the medicine for destroying the illusion of *māyā* . Now pray for this Hari-nāma-mahāmantra and take it.”
 
 #### 5
 

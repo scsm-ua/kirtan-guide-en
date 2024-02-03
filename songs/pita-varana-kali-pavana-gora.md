@@ -48,13 +48,13 @@ Lord Gaurāṅga, whose complexion is golden and who is the deliverer of the fal
 
     ānanda-payo-nidhi-vardhana-kīrti kṛṣṇa-kīrtana jaya plābana-mūrti
 
-“All glories to the chanting of the Holy Name of Krishna! Krishna*kīrtan* causes the ocean of ecstatic joy to overflow. It is an inundation of divine love.”
+“All glories to the chanting of the Holy Name of Krishna! Krishna-*kīrtan* causes the ocean of ecstatic joy to overflow. It is an inundation of divine love.”
 
 #### 7
 
     pade pade pījuṣa-svāda-pradātā kṛṣṇa-kīrtana jaya prema-bidhātā
 
-“All glories to the chanting of the Holy Name of Krishna! Krishna*kīrtan* gives one a taste of fully satisfying nectar at every step; ultimately it bestows ecstatic love of Godhead.”
+“All glories to the chanting of the Holy Name of Krishna! Krishna-*kīrtan* gives one a taste of fully satisfying nectar at every step; ultimately it bestows ecstatic love of Godhead.”
 
 #### 8
 

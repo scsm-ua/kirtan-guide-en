@@ -14,7 +14,7 @@ The night has come to an end and the light of dawn is entering. O *jīva* -soul,
     nṛsiṁha vāmana,   śrī-madhusūdana, vrajendra-nandana śyāma
     pūtanā-ghātana,   kaiṭabha-śātana, jaya dāśarathi-rāma
 
-Lord Hari incarnated as the half-man, half-lion, Nṛṣiṁha.  He  appeared  as  a  dwarf*brāhmaṇ* named Upendra and is the killer of the Madhu demon. He is the beloved son of the King of Vraja, Nanda Mahārāj, and is blackish in complexion. He is the slayer of the Pūtanā witch and the destroyer of the demon Kaiṭabha. All glories to Lord Hari, who appeared as Lord Rāma, the son of King Dāśarath.
+Lord Hari incarnated as the half-man, half-lion, Nṛṣiṁha.  He  appeared  as  a  dwarf-*brāhmaṇ* named Upendra and is the killer of the Madhu demon. He is the beloved son of the King of Vraja, Nanda Mahārāj, and is blackish in complexion. He is the slayer of the Pūtanā witch and the destroyer of the demon Kaiṭabha. All glories to Lord Hari, who appeared as Lord Rāma, the son of King Dāśarath.
 
 #### 3
 

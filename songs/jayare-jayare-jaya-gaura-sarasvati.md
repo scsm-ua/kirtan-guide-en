@@ -32,10 +32,10 @@ The mellow of Vraja (Vṛndāvan) is present in Nabadwīp in a new mood; when th
     mādhurya kaivalya rāga vrajera nirjāsa prāpti parākāṣṭhā tāhe gaurāṅga vilāsa
 
 Mādhurya-rasa (conjugal love) is the essence of Vraja Dhām, and the Pastimes of Mahāprabhu take it to its highest perfection.
-rādhā bhāva-kānti aṅgikari’ bhālo mate dakṣiṇe āsana rasa garimā dekhāte
 
 #### 6
 
+    rādhā bhāva-kānti aṅgikari’ bhālo mate dakṣiṇe āsana rasa garimā dekhāte
 
 Earnestly accepting Śrī Rādhā’s mood and beauty, He has taken His place on the right to show His glorious position.
 
@@ -68,10 +68,10 @@ By the Lord’s divine arrangement, the Supreme Savior of the fallen souls appea
     e-rūpa ārati brahmā śambhu agochara gaura bhakta kṛpā pātra mātra siddhi sāra
 
 This type of divine worship of Mahāprabhu is beyond the vision of even Lord Brahmā or Lord Shiva. Only by receiving the mercy of a devotee of Lord Gaurāṅga can one attain such perfection.
-śrī svarūpa, rāmānanda, rūpa, sanātana
 
 #### 12
 
+    śrī svarūpa, rāmānanda, rūpa, sanātana
     śrī raghu, jīvādi kṛpāya dekhe bhakta-jana
 
 Only by the mercy of Śrī Swarūp Dāmodar, Śrī Rāmananda Rāya, Śrī Rūpa, Śrī Sanātan, Śrī Raghunāth, Śrī Jīva and their associates do the devotees attain that vision.

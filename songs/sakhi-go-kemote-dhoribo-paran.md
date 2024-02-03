@@ -21,6 +21,5 @@ Tears flow from my eyes like torrents of rain in the month of Śrāvaṇa, and t
     ḍāke rādhānātha,   diyā daraśana, prāṇa rākho, nahe mori
 
 Bhakti Vinod has become very restless and again takes shelter of the holy name, calling out, “Oh Lord of Rādhā! By bestowing Your audience, please save my life! By Your mercy alone I shall not perish!”
-Footnote to verse 1:
-Śrīla Śrīdhar Mahārāja advised not to sing ‘sakhi go’ but ‘bandhu he’ instead.
+Footnote to verse 1: *Śrīla Śrīdhar Mahārāja advised not to sing ‘sakhi go’ but ‘bandhu he’ instead.*
 

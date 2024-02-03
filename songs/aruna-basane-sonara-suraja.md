@@ -60,7 +60,7 @@ As the sunset approaches, the sun shines on the mountain illuminating it like it
     suvarṇa chandramā   paśiche nīlimā se nīla bilīna heme
     ithe kiba bhāya  sādhu-jana gāya kalaṅka nā rahe preme
 
-The blue sky is covered by the Golden Moon and when the devotees glorify the Lord with their discussions, no other conception or motive can exist other than Krishna consciousness. At that time, prema , divine love
+The blue sky is covered by the Golden Moon and when the devotees glorify the Lord with their discussions, no other conception or motive can exist other than Krishna consciousness. At that time, *prema* , divine love
 descends automatically without any impediment.
 
 #### 9

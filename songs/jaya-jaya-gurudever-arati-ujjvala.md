@@ -1,6 +1,6 @@
 # Śrī Guru Ārati - jaya jaya gurudever
 
-## Glorification of Śrīla Bhakti Sundar Govinda Dev- Goswāmī Mahārāj by Śrīpād B. A. Paramahaṁsa Mahārāj translated by Devamoyī Devī Dasī
+## Glorification of Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj by Śrīpād B. A. Paramahaṁsa Mahārāj translated by Devamoyī Devī Dasī
 
 #### 1
 

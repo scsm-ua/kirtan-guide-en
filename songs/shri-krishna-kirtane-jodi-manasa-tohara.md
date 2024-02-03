@@ -52,5 +52,5 @@ Humility, mercy, consideration of others, and giving up position are the four qu
 
     bhakativinoda kā̐di bole prabhu-pāya heno adhikāra kobe dibe he āmāya
 
-Bhakti Vinod, crying at the Lord’s holy feet says, “O my Lord, when will You bestow upon me the qualifications for Krishna*kīrtan* ?”
+Bhakti Vinod, crying at the Lord’s holy feet says, “O my Lord, when will You bestow upon me the qualifications for Krishna-*kīrtan* ?”
 

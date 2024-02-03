@@ -47,6 +47,5 @@ Rādhā and Krishna are my life and soul in life and in death; whether They prot
     rādhikāra goṇe     thākiyā satata, jugala-charaṇa chāy
 
 Bhakti Vinod knows nothing else. Falling at the feet of the sakhī, Bhakti Vinod stays among the intimate confidants of Śrī Rādhā. The lotus feet of Śrī Rādhā and Krishna is Bhakti Vinod’s eternal desire.
-Footnote to Song 8b:
-Śrīla Śrīdhar Mahārāja advised not to sing this song because it’s “too high.”
+Footnote to Song 8b: *Śrīla Śrīdhar Mahārāja advised not to sing this song because it’s “too high.”*
 

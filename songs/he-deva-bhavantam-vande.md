@@ -16,7 +16,7 @@ Oh Lord, I offer my respectful obeisances to You. May you place the bumblebee of
     na tava nakhā gramarīchim idam ichāmi niśamya tavāchyuta
     tad api kṛpādbhuta vīchim
 
-Although Brahmā in his samādhi cannot obtain a glimpse of even a ray of the tips of the nails of Your feet, still Oh Achyuta! Having heard of the waves of Your astonishing mercy, I yearn to see You.
+Although Brahmā in his *samādhi* cannot obtain a glimpse of even a ray of the tips of the nails of Your feet, still Oh Achyuta! Having heard of the waves of Your astonishing mercy, I yearn to see You.
 
 #### 3
 

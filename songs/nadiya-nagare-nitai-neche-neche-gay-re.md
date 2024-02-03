@@ -16,7 +16,7 @@ Lord Chaitanya is the beloved son of Jagannāth Miśra; He is Mahāprabhu, the g
 
     śachī-suta gaurahari nimāi-sundara rādhā-bhāva-kānti-āchādito naṭavara
 
-He is the beloved son of Śachī Mātā and is Lord Hari with a golden complexion. As He was born under a neem tree He was called Nimāi*sundar* (beautiful Nimāi). He is covered by the sentiment and lustre of Śrīmatī Rādhārāṇī, and He is the best of all dancers.
+He is the beloved son of Śachī Mātā and is Lord Hari with a golden complexion. As He was born under a neem tree He was called Nimāi-*sundar* (beautiful Nimāi). He is covered by the sentiment and lustre of Śrīmatī Rādhārāṇī, and He is the best of all dancers.
 
 #### 3
 

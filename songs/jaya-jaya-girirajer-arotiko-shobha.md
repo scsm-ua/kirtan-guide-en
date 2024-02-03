@@ -13,13 +13,13 @@ All glories to the beautiful ārati of Śrī Girirāj which is going on in Śrī
 
     pramoda-madana-līla śrī-rādhā-ramaṇa yathā nitya-līlā kore loye sakhī-gaṇa
 
-Lord Śrī Rādha-Ramaṇa [Krishna who gives pleasure to his beloved Śrīmatī Rādhārāṇī] is eternally playing His joyful Loving Pastimes there in the association of the Sakhīs of Śrīmatī Rādhārāṇī.
+Lord Śrī Rādha-Ramaṇa [Krishna who gives pleasure to his beloved Śrīmatī Rādhārāṇī] is eternally playing His joyful Loving Pastimes there in the association of the *Sakhīs* of Śrīmatī Rādhārāṇī.
 
 #### 3
 
     mālatī-mādhavī-kuñja kandare kandare nigūḍha nikuñja-līla hari manohare
 
-Here deep within the groves of mālatī flowers and mādhavī creepers, the confidential Pastimes of the charming Lord Hari are going on.
+Here deep within the groves of *mālatī* flowers and *mādhavī* creepers, the confidential Pastimes of the charming Lord Hari are going on.
 
 #### 4
 
@@ -67,5 +67,5 @@ The beauty of the ārati of Śrī Girirāj Jīu which is rare and precious is be
 
     sevya o sevaka-rūpe nitya parakāśa sānande ārati dekhe e adhama dāsa
 
-Śrī Śrī Girirāj Jīu is eternally manifested as both the worshipable Lord and the servitor Lord. This fallen servant sees the ārati of Śrī Girirāj Jīu with great ecstasy.
+Śrī Śrī Girirāj Jīu is eternally manifested as both the worshipable Lord and the servitor Lord. This fallen servant sees the *ārati* of Śrī Girirāj Jīu with great ecstasy.
 

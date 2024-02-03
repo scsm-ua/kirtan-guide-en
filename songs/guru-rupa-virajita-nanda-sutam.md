@@ -21,7 +21,7 @@ Adorned  with  the  heart  and  halo  of Śrīmatī Rādhārāṇī (Vṛṣabh�
 
     uditākhila-gaurava-gauḍapuraṁ puraṭojjvala-maṅgala-mūrta-rasam rasanotsava-kīrtana-kṛṣṇa-hariṁ bhaja gaurahariṁ bhaja gauraharim
 
-He manifested the full glory of Śrī Nabadwip Dhām, as He appeared in His radiant gold, all-auspicious form of divine ecstasy, ever engaged in Krishna*kīrtan* , which is a festival for the tongue. Serve that Lord, Gaurahari, worship Gaurahari.
+He manifested the full glory of Śrī Nabadwip Dhām, as He appeared in His radiant gold, all-auspicious form of divine ecstasy, ever engaged in Krishna-*kīrtan* , which is a festival for the tongue. Serve that Lord, Gaurahari, worship Gaurahari.
 
 #### 4
 

@@ -53,7 +53,7 @@ He is the illustrious personality to raise the flag that sings the glory of Śr�
 
     kṛpayā hari-kīrtana mūrti-dharaṁ dharaṇī-bhara-hāraka-gaura-janam janakādhika-vatsala-snigdha-padaṁ praṇamāmi sadā prabhupāda-padam
 
-Bestowing his grace upon all souls, he is Hari*kīrtan* incarnate. As the associate of Śrī Gaura, he relieves Mother Earth of the burden of offences committed upon her. And he is so gracious that his endearance of all beings excels that of even a father. I make my obeisance unto him—the mine of all these qualities; perpetually do I bow down to the effulgence emanating from the toenails of the holy feet of my Divine Master.
+Bestowing his grace upon all souls, he is Hari-*kīrtan* incarnate. As the associate of Śrī Gaura, he relieves Mother Earth of the burden of offences committed upon her. And he is so gracious that his endearance of all beings excels that of even a father. I make my obeisance unto him—the mine of all these qualities; perpetually do I bow down to the effulgence emanating from the toenails of the holy feet of my Divine Master.
 śaraṇāgata-kiṅkara-kalpa-taruṁ
 
 #### 9
@@ -67,7 +67,7 @@ Like a wish-fulfilling tree for his surrendered servitors (he fulfills their hea
     parahaṁsa-varaṁ paramārtha-patiṁ patitodharaṇe kṛta-veśa-yatim
     yati-rāja-gaṇaiḥ parisevya-padaṁ praṇamāmi sadā prabhupāda-padam
 
-The crown-jewel of the *paramahaṁsas* , the Prince of the treasure of the supreme perfection of life, Śrī Krishna*prema* , he accepted the robes of a mendicant *sannyāsī* just to deliver the fallen souls. The topmost tridaṇḍī *sannyāsīs* attend his lotus feet. I make my obeisance unto him; perpetually do I bow down to the effulgence emanating from the toenails of the holy feet of my Divine Master.
+The crown-jewel of the *paramahaṁsas* , the Prince of the treasure of the supreme perfection of life, Śrī Krishna-*prema* , he accepted the robes of a mendicant *sannyāsī* just to deliver the fallen souls. The topmost tridaṇḍī *sannyāsīs* attend his lotus feet. I make my obeisance unto him; perpetually do I bow down to the effulgence emanating from the toenails of the holy feet of my Divine Master.
 
 #### 11
 

@@ -19,7 +19,7 @@ The hidden Govardhan graces Koladwīp with its beauty. Now it has manifested its
 
     mālatī-mādhavī-kuñja kandare kandare nigūḍha-nikuñja-līlā hari-manohare
 
-There are groves of mālatī and mādhavī flowers in its various caves. In these groves, Lord Hari plays His hidden, mysterious, and enchanting Pastimes.
+There are groves of *mālatī* and *mādhavī* flowers in its various caves. In these groves, Lord Hari plays His hidden, mysterious, and enchanting Pastimes.
 
 #### 4
 

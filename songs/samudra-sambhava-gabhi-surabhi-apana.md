@@ -29,7 +29,7 @@ The transcendental water of this Kuṇḍa can banish even the greatest sins. Th
 
     bahu-bhāgye keho sei dugdhāsvāda pāya chidānanda-deho labhi kṛṣṇa-loke jāya
 
-Sometimes, by great fortune, someone will get to taste the water of Govinda Kuṇḍa as that milk, attain a transcendental form, and go to Krishna*loka* .
+Sometimes, by great fortune, someone will get to taste the water of Govinda Kuṇḍa as that milk, attain a transcendental form, and go to Krishna-*loka* .
 
 #### 5
 

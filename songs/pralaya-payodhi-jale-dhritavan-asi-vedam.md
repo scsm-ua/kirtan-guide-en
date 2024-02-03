@@ -36,7 +36,7 @@ of the wasplike demon Hiraṇyakaśipu has been ripped apart by the wonderful po
     chalayasi vikramaṇe balim adbhuta-vāmana pada-nakha-nīra-janita-jana-pāvana
     keśava dhṛta-vāmana-rūpa jaya jagadīśa hare
 
-Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of a dwarf*brāhmaṇ* ! All glories to You! Oh wonderful dwarf, by Your massive steps You deceive King Bali, and by the Ganges water that has emanated from the nails of Your lotus feet, You deliver all living beings within this world.
+Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of a dwarf-*brāhmaṇ* ! All glories to You! Oh wonderful dwarf, by Your massive steps You deceive King Bali, and by the Ganges water that has emanated from the nails of Your lotus feet, You deliver all living beings within this world.
 
 #### 6
 

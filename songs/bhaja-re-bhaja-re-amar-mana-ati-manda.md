@@ -21,10 +21,10 @@ O my mind, how foolish you are. Just worship the lotus feet of Rādhā and Krish
     (gaura-preme smara smara re) (śrīnivāsa, haridāse, gaura-preme smara re)
 
 You  should  worship  and  serve  Lord  Gaura, Gadādhara, Advaita, and the original Spiritual Master, Lord Nityānanda. Knowing Lord Gaura and Lord Krishna to be the same, and knowing the Spiritual Master to be very dear to Krishna, you should remember the dear associates of Lord Chaitanya, such as Śrīvās Ṭhākur, Haridās Ṭhākur, Murāri Gupta, and Mukunda Datta. In deep love for Lord Gaura, you should remember the two great personalities Śrīvās Ṭhākur and Haridās Ṭhākur.
-rūpa-sanātana-jīva-raghunātha-dvandva
 
 #### 3
 
+    rūpa-sanātana-jīva-raghunātha-dvandva
     (jadi bhajan korbe re)
     (rūpa-sanātane smaran jadi bhajan korbe re)
     rāghava-gopāla-bhaṭṭa-svarūpa-rāmānanda

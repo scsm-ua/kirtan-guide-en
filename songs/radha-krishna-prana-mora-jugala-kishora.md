@@ -18,7 +18,7 @@ I shall install the Divine Couple on a jewelled throne in a pleasant forest of k
 
     śyāma-gaurī-aṅge dibo chandanera gandha chāmara ḍhulābo kobe heri mukha-chandra
 
-When will I place aromatic sandalwood paste on the limbs of Lord Śyāmasundar and Śrīmatī Rādhārāṇī? When will I fan Them with a chāmara wisk? When will I see Their moonlike faces?
+When will I place aromatic sandalwood paste on the limbs of Lord Śyāmasundar and Śrīmatī Rādhārāṇī? When will I fan Them with a *chāmara* wisk? When will I see Their moonlike faces?
 
 #### 4
 
@@ -30,7 +30,7 @@ When will I string garlands of malati flowers and place them on the necks of the
 
     lalitā visākhā-ādi jata sakhī-vṛnda ājñāya koribo sevā charaṇāravinda
 
-When, following the orders of Lalitā, Viśākhā and the other gopīs , will I serve the lotus feet of the Divine Couple?
+When, following the orders of Lalitā, Viśākhā and the other *gopīs* , will I serve the lotus feet of the Divine Couple?
 
 #### 6
 

@@ -75,7 +75,7 @@ on hidden Govardhan Hill.
     gauḍīya-āchārya-goṣṭhī-gaurava-bhājana gauḍīya-siddhāntamaṇi kaṇṭha-vibhuṣaṇa.
 
 You’re the fit recipient of your dignity In the Gauḍīya Āchārya assembly,
-The jewel of the Gauḍīya*siddhānta* adorning your chest so nobly.
+The jewel of the Gauḍīya-*siddhānta* adorning your chest so nobly.
 
 #### 11
 

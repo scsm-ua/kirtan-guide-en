@@ -94,11 +94,11 @@ While  Krishna  happily  takes  His  rest  on  an excellent bedstead, His servan
     śrī-kṛṣṇa-prasāda rādhā bhuñje hoye prīto
 
 At Mother Yaśodā’s request the *gopī* Dhaniṣṭhā brings remnants of food left on Krishna’s plate to Śrīmatī Rādhārāṇī, who eats them with great delight.
-lalitādi sakhī-gaṇa avaśeṣa pāya
-mane mane sukhe rādhā-kṛṣṇa-guṇa gāya
 
 #### 16
 
+    lalitādi sakhī-gaṇa avaśeṣa pāya
+    mane mane sukhe rādhā-kṛṣṇa-guṇa gāya
 
 Lalitā-devī and the other *gopīs* then receive the remnants, and within their hearts they sing the glories of Rādhārāṇī and Krishna with great joy.
 
