@@ -129,6 +129,7 @@
 - [vibhāvarī śeṣa, āloka-praveśa](songs/vibhavari-shiesha-aloka-praveshia.md)
 - [vimala hemajin tanu anupama re!](songs/vimala-hemajin-tanu-anupama-re.md)
 - [virajār pāre śuddha-paravyoma-dhām](songs/virajar-pare-shiuddha-paravyoma-dham.md)
+- [vāñchā-kalpatarubhyas’ cha](songs/vancha-kalpatarubhyas-cha.md)
 - [yadi te hari-pāda-saroja-sudhā](songs/yadi-te-hari-pada-saroja-sudha.md)
 - [yo ’nanto ’nanta-vaktrair niravadhi](songs/yo-nanto-nanta-vaktrair-niravadhi.md)
 - [yoga-pīṭhopari-sthita, aṣṭa-sakhī-subeṣṭita](songs/yoga-pithopari-sthita-ashta-sakhi-subeshtita.md)

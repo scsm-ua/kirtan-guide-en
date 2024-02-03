@@ -10,6 +10,7 @@
 - [Śrīla Gaura Kiśora Dās Bābājī Mahārāj](songs/namo-gaurakishoraya-bhaktavadhuta-murtaye.md)
 - [Śrīla Bhakti Vinod Ṭhākur](songs/vande-bhaktivinodam-shri-gaura-shiakti-svarupakam.md)
 - [Śrīla Jagannāth Dās Bābājī Mahārāj](songs/gaura-vrajashritashieshair-vaishnavair-vandya-vigraham.md)
+- [vāñchā-kalpatarubhyas’ cha](songs/vancha-kalpatarubhyas-cha.md)
 - [Śrī-Śrī-Guru-Gaurāṅga-Rādhā-Madana-Mohanjīu Kolkata, Sree Chaitanya Sāraswata Krishnanushilana Sangha](songs/jayatam-suratau-pangor.md)
 - [Śrī-Śrī-Guru-Gaurāṅga-Gāndharvā-Govindasundarjīu Nabadwīp, Śrī Chaitanya Sāraswat Maṭh](songs/divyad-vrindaranya-kalpa-drumadhah.md)
 - [Śrī-Śrī-Guru-Gaurāṅga-Rādhā-Gopīnāthjīu Hāpāniyā, Śrī Chaitanya Sāraswat Ashram](songs/shriman-rasa-rasarambhi.md)
