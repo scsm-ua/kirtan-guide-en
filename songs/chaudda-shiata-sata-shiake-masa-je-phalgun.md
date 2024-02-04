@@ -12,7 +12,7 @@ Thus in the year 1407 of the Śaka Era (A.D. 1486), in the month of Phālguna [M
 
     siṁha-rāśi, siṁha-lagna, ucha graha-goṇ ṣaḍa-varga, aṣṭa-varga, sarva sulakṣaṇ
 
-According to the Jyotir-veda, or Vedic astronomy, when the figure of the lion appears both in the zodiac and the time of birth [ *lagna* ], this indicates a very high conjunction of planets, an area under the influence of *ṣaḍa-varga* and *aṣṭa-varga*, which are all-auspicious moments.
+According to the Jyotir-veda, or Vedic astronomy, when the figure of the lion appears both in the zodiac and the time of birth [*lagna*], this indicates a very high conjunction of planets, an area under the influence of *ṣaḍa-varga* and *aṣṭa-varga*, which are all-auspicious moments.
 
 #### 91
 
