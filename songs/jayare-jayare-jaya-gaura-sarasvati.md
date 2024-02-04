@@ -80,5 +80,5 @@ Only by the mercy of Śrī Swarūp Dāmodar, Śrī Rāmananda Rāya, Śrī Rūpa
 
     jaya guru-gaura-rādhā-govinda-sundara jaya dāo bhakta vṛnda nitya nirantara
 
-All glories to Śrī Guru, Gaurāṅga, RādhāGovindasundar. O devotees, always sing Their eternal glories.
+All glories to Śrī Guru, Gaurāṅga, Rādhā-Govindasundar. O devotees, always sing Their eternal glories.
 

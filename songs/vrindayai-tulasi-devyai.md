@@ -14,7 +14,7 @@ I eternally offer my respects unto Śrī Vṛndādevī, Śrīmatī Tulasī Mahā
 
 Then, let me bow down before all my spiritual masters: the guru who gave me the divine mantra, as well as all those who have taught me the meaning of Śrīmad Bhāgavatam. Let me offer my respectful obeisances unto Śrīla Vyāsadeva, the spiritual master of the entire universe and the giver of the all-conquering conclusions of Śrīmad Bhāgavatam.
 
-    jayaḥ sa-parikara śrī-śrī-guru-gaurāṅga-gāndharvā-gov- indasundar-pādapadmānāṁ jayastu!
+    jayaḥ sa-parikara śrī-śrī-guru-gaurāṅga-gāndharvā-govindasundar-pādapadmānāṁ jayastu!
 
 Let the holy lotus feet of Śrī Gurudeva, Śrīman Mahāprabhu, and Śrī Śrī Gāndharvā-Govindasundar, along with Their eternal associates, be victorious over all!
 
