@@ -80,7 +80,7 @@ After all the cowherd boys wash their hands and mouths, in great bliss they take
     jāmbula rasāla āne tāmbūla-maśālā
     tāhā kheye kṛṣṇa-chandra sukhe nidrā gelā
 
-The two cowherd boys Jāmbula and Rasāla then bring Krishna *pān* made with betel nuts, fancy spices, and catechu. After eating that *pān* , Śrī Krishnachandra then happily goes to sleep.
+The two cowherd boys Jāmbula and Rasāla then bring Krishna *pān* made with betel nuts, fancy spices, and catechu. After eating that *pān*, Śrī Krishnachandra then happily goes to sleep.
 
 #### 14
 

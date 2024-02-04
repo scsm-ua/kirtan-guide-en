@@ -7,7 +7,7 @@
     śrī-kṛṣṇa-chaitanya prabhu jīve dayā kori’ svapārṣada svīya dhāma saha avatari
 
 Lord Śrī Krishna Chaitanya,
-Being gracious upon the *jīva* -souls, Along with Your associates and abode
+Being gracious upon the *jīva*-souls, Along with Your associates and abode
 You descended to this world
 
 #### 2

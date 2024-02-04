@@ -30,7 +30,7 @@ He saw me so fallen and wretched, took pity, and came to me saying, “O humbled
     rukma-varṇa vipra-suta mahāprabhu nāme, nadīyā mātāya,
     soṅge bhāi avadhūta
 
-“To fulfil the promise of the Vedas, the son of a *brāhmaṇ* , bearing the Name Mahāprabhu of golden complexion, has descended with His brother, the avadhūt Nityānanda. Together They have overwhelmed all of Nadia with divine ecstasy.
+“To fulfil the promise of the Vedas, the son of a *brāhmaṇ*, bearing the Name Mahāprabhu of golden complexion, has descended with His brother, the avadhūt Nityānanda. Together They have overwhelmed all of Nadia with divine ecstasy.
 
 #### 5
 

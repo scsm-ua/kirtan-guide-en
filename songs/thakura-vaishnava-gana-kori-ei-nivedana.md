@@ -14,7 +14,7 @@ O saintly Vaiṣṇavas, although I am very fallen and misbehaved, I nevertheles
     vidhi boḍo valavān  na śune dharama-jñāna sadāi karama-pāśe bāndhe
     nā dekhi tāraṇa leśa   jata dekhi saba kleśa anātha kātare te̐i kānde
 
-My destiny is very powerful. I am not able to hear the knowledge of spiritual life, and I am always bound by the ropes of *karma* . I cannot see any way to escape my
+My destiny is very powerful. I am not able to hear the knowledge of spiritual life, and I am always bound by the ropes of *karma*. I cannot see any way to escape my
 condition. I see only suffering. Helpless and stricken with grief, I cry.
 
 #### 3

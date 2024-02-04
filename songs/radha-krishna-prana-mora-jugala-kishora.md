@@ -30,7 +30,7 @@ When will I string garlands of malati flowers and place them on the necks of the
 
     lalitā visākhā-ādi jata sakhī-vṛnda ājñāya koribo sevā charaṇāravinda
 
-When, following the orders of Lalitā, Viśākhā and the other *gopīs* , will I serve the lotus feet of the Divine Couple?
+When, following the orders of Lalitā, Viśākhā and the other *gopīs*, will I serve the lotus feet of the Divine Couple?
 
 #### 6
 

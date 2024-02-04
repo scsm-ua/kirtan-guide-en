@@ -42,5 +42,5 @@ Without taking shelter of the lotus feet of Śrī Rādhā, one will never meet K
     choḍata dhona-jon,   kalatra-suta-mita, choḍata karama geyān
     rādhā-pada-paṅkaja,  madhurata sevana, bhakativinoda paramāṇ
 
-Having given up wealth, followers, wife, children, family, and friends, material activities and intellectual knowledge, one should become absorbed in the divine sweetness of service to the lotus feet of Śrī Rādhā as one of Her maidservants in *madhura-rasa* . This is Bhakti Vinod’s solemn declaration.
+Having given up wealth, followers, wife, children, family, and friends, material activities and intellectual knowledge, one should become absorbed in the divine sweetness of service to the lotus feet of Śrī Rādhā as one of Her maidservants in *madhura-rasa*. This is Bhakti Vinod’s solemn declaration.
 

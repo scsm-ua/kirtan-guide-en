@@ -36,7 +36,7 @@ I O Lord Your eyes are like lotus petals, and You destroy the bondage of the mat
 
     janaka-sutā-kṛta-bhūṣaṇa jita-dūṣaṇa he samara-śamita-daśa-kaṇṭha jaya jaya deva hare
 
-O Lord, as the gem of the sons of Janaka, You were victorious over all the *asuras* , and You smashed the greatest asura, the ten-headed Ravana. Glories to Lord Hari!
+O Lord, as the gem of the sons of Janaka, You were victorious over all the *asuras*, and You smashed the greatest asura, the ten-headed Ravana. Glories to Lord Hari!
 
 #### 7
 

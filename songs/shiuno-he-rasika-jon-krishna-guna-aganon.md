@@ -28,7 +28,7 @@ Krishna is an ocean of compassion for those who are bound up in fruitive reactio
     vidhi-mārga rata jone  svādhīnatā ratna dāne rāgamārge karāna praveśa
     rāga-vaśavarti ho’ye pārakīya-bhāvāśroye lobhe jīva kṛṣṇa-premāveśa
 
-Krishna eventually bestows the jewel of independence unto those persons who are attached to the path of rules and regulations, thereby allowing them entrance into the path of spontaneous loving service. Becoming influenced by such spontaneity, remaining under the shelter of the mellows of unwedded love ( *pārakīya-bhāva* ), the soul finally attains all the symptoms of ecstatic love for Krishna.
+Krishna eventually bestows the jewel of independence unto those persons who are attached to the path of rules and regulations, thereby allowing them entrance into the path of spontaneous loving service. Becoming influenced by such spontaneity, remaining under the shelter of the mellows of unwedded love (*pārakīya-bhāva*), the soul finally attains all the symptoms of ecstatic love for Krishna.
 
 #### 5
 

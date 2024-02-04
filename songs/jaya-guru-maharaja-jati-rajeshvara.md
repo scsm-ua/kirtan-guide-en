@@ -120,6 +120,6 @@ The nectar of Rādhā-Govinda’s Pastimes one day we may drink, by your grace.
     avichintya-bhedābheda-siddhānta-prakāśa sānande ārati stuti kore dīna-dāsa.
 
 O personification of perfect conclusions inconceivably one, yet different!
-I sing this prayer at your *ārati* ,
+I sing this prayer at your *ārati*,
 with joy—your humble servant.
 

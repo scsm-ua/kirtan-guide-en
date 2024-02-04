@@ -16,7 +16,7 @@
     tribhuvana-nivāsine   kṛṣṇam-upadeśinaṁ asura-kula-dāmbhika-kṛtāntam
     naumi budha-nāyakaṁ parama-gati-dāyakaṁ mama śaraṇa-maraṇa-gaṇa-chintyam
 
-His two feet resemble fresh petals of a lotus flower and distribute fearless blessings; his divine glowing form puts to shame the glow of gold, and is glorified for its beautiful dancing by all the demigods; his lotus face is so charming it puts to shame the charm of the autumnal moon; his broad forehead is decorated with *gopī-chandan tilak* ; I adore that Śrīdhara-deva Swāmī always.
+His two feet resemble fresh petals of a lotus flower and distribute fearless blessings; his divine glowing form puts to shame the glow of gold, and is glorified for its beautiful dancing by all the demigods; his lotus face is so charming it puts to shame the charm of the autumnal moon; his broad forehead is decorated with *gopī-chandan tilak*; I adore that Śrīdhara-deva Swāmī always.
 
 #### 3-4
 

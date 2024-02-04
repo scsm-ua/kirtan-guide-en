@@ -18,7 +18,7 @@ All phases of the self of which we may conceive are fully satisfied and purified
 
     pīta-varaṇa kali-pāvana gorā gāoyāi aichana bhāva-bibhorā
 
-Lord Gaurāṅga, whose complexion is golden and who is the deliverer of the fallen souls of *Kali-yuga* , sings as follows, overwhelmed with spiritual ecstasy.
+Lord Gaurāṅga, whose complexion is golden and who is the deliverer of the fallen souls of *Kali-yuga*, sings as follows, overwhelmed with spiritual ecstasy.
 
 #### 2
 
@@ -36,7 +36,7 @@ Lord Gaurāṅga, whose complexion is golden and who is the deliverer of the fal
 
     śreyaḥ-kumuda-bidhu-jyotsnā-prakāśa kṛṣṇa-kīrtana jaya bhakti-vilāsa
 
-“All glories to the chanting of the Holy Name of Krishna! It appears like the moon in the heart and distributes its cooling moonlight, making the white lotus of the soul’s good fortune blossom and bloom. Krishna-kīrtan is the *bhakti-vilāsa* , the beautiful pastime of devotion.”
+“All glories to the chanting of the Holy Name of Krishna! It appears like the moon in the heart and distributes its cooling moonlight, making the white lotus of the soul’s good fortune blossom and bloom. Krishna-kīrtan is the *bhakti-vilāsa*, the beautiful pastime of devotion.”
 
 #### 5
 

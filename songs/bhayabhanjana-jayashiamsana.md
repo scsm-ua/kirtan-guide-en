@@ -8,7 +8,7 @@
 
     bhayabhañjana jayaśaṁsana-karuṇāyata-nayanam kanakotpala janakojjvala-rasasāgara-chayanam mukharīkṛta-dharaṇītala-harikīrtana-rasanam kṣitipāvana-bhavatāraṇa-pihitāruṇa-vasanam śubhadodaya-divase vṛṣaravijā-nija-dayitam praṇamāmi cha charaṇāntika-parichāraka-sahitam
 
-He (of divine form) came forth from the birthplace of the golden lotus - the ocean of the mellow of divine consorthood. His large, merciful eyes dispel (the suffering souls’) fear and proclaim (the surrendered souls’) victory. His tongue (constantly) vibrates the whole Earth planet with Śrī Krishna-*saṅkīrtan* , his beauty resplendent in the robes of the sun’s radiance (saffron) that purifies the universe and dispels the suffering of material existence. On his Holy Day of Advent, I (again and again) bow down unto that beloved associate of Śrī Vṛṣabhānunandinī, and the servitors of his lotus feet.
+He (of divine form) came forth from the birthplace of the golden lotus - the ocean of the mellow of divine consorthood. His large, merciful eyes dispel (the suffering souls’) fear and proclaim (the surrendered souls’) victory. His tongue (constantly) vibrates the whole Earth planet with Śrī Krishna-*saṅkīrtan*, his beauty resplendent in the robes of the sun’s radiance (saffron) that purifies the universe and dispels the suffering of material existence. On his Holy Day of Advent, I (again and again) bow down unto that beloved associate of Śrī Vṛṣabhānunandinī, and the servitors of his lotus feet.
 
 #### 2
 
@@ -20,7 +20,7 @@ The devotees surrendered in pure devotion are eternally protected at his lotus f
 
     atilaukika-gatitaulika-ratikautuka-vapuṣam atidaivata-mativaiṣṇava-yati-vaibhava-puruṣam sasanātana-raghurūpaka-paramāṇugacharitam suvichāraka iva jīvaka iti sādhubhiruditam śubhadodaya-divase vṛṣaravijā-nija-dayitam praṇamāmi cha charaṇāntika-parichāraka-sahitam
 
-Like a miracle, his body moves with a joyful elegance and charm beyond the world’s understanding, fulfilling the artist’s aspiration. (Or, dancing in Pastimes transcendental to the world, his artistic form incites divine love’s hankering). His intellect surpasses that of (even) the demigods, and he is nobility incarnate as the commander in-chief of the Vaiṣṇava *sannyāsīs* ( *tridaṇḍi-yatis* ). The *sādhus* of profound intellect describe the nature of his personality as meticulously in the line of Śrī Sanātan, Śrī Rūpa, and Śrī Raghunāth, and they speak of him as being on the same plane as Śrī Jīvapāda (being superbly replete in perfect theistic conclusions). On his Holy Day of Advent, I (again and again) bow down unto that beloved associate of Śrī Vṛṣabhānunandinī, and the servitors of his lotus feet.
+Like a miracle, his body moves with a joyful elegance and charm beyond the world’s understanding, fulfilling the artist’s aspiration. (Or, dancing in Pastimes transcendental to the world, his artistic form incites divine love’s hankering). His intellect surpasses that of (even) the demigods, and he is nobility incarnate as the commander in-chief of the Vaiṣṇava *sannyāsīs* (*tridaṇḍi-yatis*). The *sādhus* of profound intellect describe the nature of his personality as meticulously in the line of Śrī Sanātan, Śrī Rūpa, and Śrī Raghunāth, and they speak of him as being on the same plane as Śrī Jīvapāda (being superbly replete in perfect theistic conclusions). On his Holy Day of Advent, I (again and again) bow down unto that beloved associate of Śrī Vṛṣabhānunandinī, and the servitors of his lotus feet.
 
 #### 4
 

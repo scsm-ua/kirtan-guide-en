@@ -12,7 +12,7 @@ Thus in the year 1407 of the Śaka Era (A.D. 1486), in the month of Phālguna [M
 
     siṁha-rāśi, siṁha-lagna, ucha graha-goṇ ṣaḍa-varga, aṣṭa-varga, sarva sulakṣaṇ
 
-According to the Jyotir-veda, or Vedic astronomy, when the figure of the lion appears both in the zodiac and the time of birth [ *lagna* ], this indicates a very high conjunction of planets, an area under the influence of *ṣaḍa-varga* and *aṣṭa-varga* , which are all-auspicious moments.
+According to the Jyotir-veda, or Vedic astronomy, when the figure of the lion appears both in the zodiac and the time of birth [*lagna*], this indicates a very high conjunction of planets, an area under the influence of *ṣaḍa-varga* and *aṣṭa-varga*, which are all-auspicious moments.
 
 #### 91
 
@@ -76,7 +76,7 @@ At that time Śrī Advaita Āchārya, in His own house at Shantipur, was dancing
     dekhi’ uparāga hāsi’,  śīghra gaṅgā-ghāṭe āsi’ ānande korilo gaṅgā-snāna
     pāyā uparāga-chole,    āpanāra mano-bole, brāhmaṇere dilo nānā dāna
 
-Seeing the lunar eclipse and laughing, both Advaita Āchārya and Haridās Ṭhākur immediately went to the bank of the Ganges to bathe in that sacred river in great jubilation. Taking advantage of the occasion of the lunar eclipse, Advaita Āchārya, in His mind offered various kinds of charity to the *brāhmaṇs* .
+Seeing the lunar eclipse and laughing, both Advaita Āchārya and Haridās Ṭhākur immediately went to the bank of the Ganges to bathe in that sacred river in great jubilation. Taking advantage of the occasion of the lunar eclipse, Advaita Āchārya, in His mind offered various kinds of charity to the *brāhmaṇs*.
 
 #### 101
 
@@ -111,7 +111,7 @@ Many respectful *brāhmaṇ* gentlemen and ladies, carrying plates filled with v
     sāvitrī, gaurī, sarasvatī, śachī, rambhā, arundhatī, āro jata deva-nārīgoṇ
     nānā-dravye pātra bhori’, brāhmaṇīra veśa dhori’, āsi’ sobe koren daraśan
 
-Sāvitrī, Gaurī, Śachī, Rambhā, Arundhatī and all the celestial ladies also came there dressed as the wives of *brāhmaṇs* , and brought with them many varieties of gifts for the child.
+Sāvitrī, Gaurī, Śachī, Rambhā, Arundhatī and all the celestial ladies also came there dressed as the wives of *brāhmaṇs*, and brought with them many varieties of gifts for the child.
 
 #### 106
 
@@ -141,14 +141,14 @@ Chandraśekhar Āchārya and Śrīvas Ṭhākur both came to the house of Jagann
     jautuka pāilo jata,   ghore vā āchilo kata, sob dhon vipre dilo dāna
     jata nartaka, gāyan,     bhāṭa, akiñchana jon, dhon diyā koilo sabāra māna
 
-Whatever riches Jagannāth Miśra had collected in the form of gifts and presents, and whatever he had in his house, he distributed among the *brāhmaṇs* , singers, dancers, poets and the poor. He honored them all by giving them riches in charity.
+Whatever riches Jagannāth Miśra had collected in the form of gifts and presents, and whatever he had in his house, he distributed among the *brāhmaṇs*, singers, dancers, poets and the poor. He honored them all by giving them riches in charity.
 
 #### 110
 
     śrīvāsera brāhmaṇī,    nāma tā̐ra ‘mālinī’, āchāryaratnera patnī-soṅge
     sindūra, haridrā, toilo,   khoi, kalā, nānā phol, diyā pūje nārīgoṇa roṅge
 
-The wife of Śrīvas Ṭhākur, whose name was Mālinī, accompanied by the wife of Chandraśekhar and other ladies, came there in great happiness to worship the baby with such articles as vermilion, turmeric, scented oil, a kind of puffed rice called *khoi* , bananas and coconuts.
+The wife of Śrīvas Ṭhākur, whose name was Mālinī, accompanied by the wife of Chandraśekhar and other ladies, came there in great happiness to worship the baby with such articles as vermilion, turmeric, scented oil, a kind of puffed rice called *khoi*, bananas and coconuts.
 
 #### 111
 

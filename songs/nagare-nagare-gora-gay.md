@@ -52,7 +52,7 @@ Krishna, best of dancers, sometimes wanders in the caves of Govardhān Hill. He 
 
     yajña-patnī-goṇ-prati karuṇāra sindhu govardhana-dhṛk mādhava vraja-vāsi-bandhu
 
-Krishna is the ocean of mercy of the wives of the sacrificial *brāhmaṇs* , He is the holder of Govardhān Hill, the husband of the goddess of fortune, Lakṣmī, and the dearmost friend of the inhabitants of Vraja.
+Krishna is the ocean of mercy of the wives of the sacrificial *brāhmaṇs*, He is the holder of Govardhān Hill, the husband of the goddess of fortune, Lakṣmī, and the dearmost friend of the inhabitants of Vraja.
 
 #### 9
 

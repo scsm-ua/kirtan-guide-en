@@ -46,11 +46,11 @@ Always knowing that Krishna dwells within the hearts of all living beings, you s
 
     doinya, dayā, anye mān, pratiṣṭhā-varjan chāri guṇe guṇī hoi karaho kīrtan
 
-Humility, mercy, consideration of others, and giving up position are the four qualities needed to perform *kīrtan* .
+Humility, mercy, consideration of others, and giving up position are the four qualities needed to perform *kīrtan*.
 
 #### 8
 
     bhakativinoda kā̐di bole prabhu-pāya heno adhikāra kobe dibe he āmāya
 
-Bhakti Vinod, crying at the Lord’s holy feet says, “O my Lord, when will You bestow upon me the qualifications for Krishna-*kīrtan* ?”
+Bhakti Vinod, crying at the Lord’s holy feet says, “O my Lord, when will You bestow upon me the qualifications for Krishna-*kīrtan*?”
 

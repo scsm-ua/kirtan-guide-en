@@ -23,13 +23,13 @@ The pond filled with that milk, “Śrī Govinda Kuṇḍa,” graces beautiful 
 
     kuṇḍavāri mahāpāpahārī se chinmoya snāne pāne bhavabhaya tritāpa nāśaya
 
-The transcendental water of this Kuṇḍa can banish even the greatest sins. The threefold miseries— *ādhyātmic* , *ādhidaivic* and *ādhibhautic* —and all fears of this material world are destroyed by bathing in or drinking this water.
+The transcendental water of this Kuṇḍa can banish even the greatest sins. The threefold miseries—*ādhyātmic*, *ādhidaivic* and *ādhibhautic*—and all fears of this material world are destroyed by bathing in or drinking this water.
 
 #### 4
 
     bahu-bhāgye keho sei dugdhāsvāda pāya chidānanda-deho labhi kṛṣṇa-loke jāya
 
-Sometimes, by great fortune, someone will get to taste the water of Govinda Kuṇḍa as that milk, attain a transcendental form, and go to Krishna-*loka* .
+Sometimes, by great fortune, someone will get to taste the water of Govinda Kuṇḍa as that milk, attain a transcendental form, and go to Krishna-*loka*.
 
 #### 5
 
