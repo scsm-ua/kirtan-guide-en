@@ -7,7 +7,7 @@
     jaya jaya girirājer ārati viśāla
     śrī gaura-maṇḍala-mājhe bhuvana-maṅgala
 
-All glories, all glories, to the grand ārati of Śrī Girirāj! In the midst of Śrī Gaura M aṇḍal , it is benefitting the entire universe.
+All glories, all glories, to the grand ārati of Śrī Girirāj! In the midst of Śrī Gaura Maṇḍal , it is benefitting the entire universe.
 
 #### 2
 
