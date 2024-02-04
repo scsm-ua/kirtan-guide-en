@@ -67,7 +67,7 @@ Like a wish-fulfilling tree for his surrendered servitors (he fulfills their hea
     parahaṁsa-varaṁ paramārtha-patiṁ patitodharaṇe kṛta-veśa-yatim
     yati-rāja-gaṇaiḥ parisevya-padaṁ praṇamāmi sadā prabhupāda-padam
 
-The crown-jewel of the *paramahaṁsas*, the Prince of the treasure of the supreme perfection of life, Śrī Krishna-*prema*, he accepted the robes of a mendicant *sannyāsī* just to deliver the fallen souls. The topmost tridaṇḍī*sannyāsīs* attend his lotus feet. I make my obeisance unto him; perpetually do I bow down to the effulgence emanating from the toenails of the holy feet of my Divine Master.
+The crown-jewel of the *paramahaṁsas*, the Prince of the treasure of the supreme perfection of life, Śrī Krishna-*prema*, he accepted the robes of a mendicant *sannyāsī* just to deliver the fallen souls. The topmost tridaṇḍī *sannyāsīs* attend his lotus feet. I make my obeisance unto him; perpetually do I bow down to the effulgence emanating from the toenails of the holy feet of my Divine Master.
 
 #### 11
 
