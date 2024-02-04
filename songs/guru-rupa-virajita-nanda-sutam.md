@@ -21,7 +21,7 @@ Adorned  with  the  heart  and  halo  of Śrīmatī Rādhārāṇī (Vṛṣabh�
 
     uditākhila-gaurava-gauḍapuraṁ puraṭojjvala-maṅgala-mūrta-rasam rasanotsava-kīrtana-kṛṣṇa-hariṁ bhaja gaurahariṁ bhaja gauraharim
 
-He manifested the full glory of Śrī Nabadwip Dhām, as He appeared in His radiant gold, all-auspicious form of divine ecstasy, ever engaged in Krishna-*kīrtan* , which is a festival for the tongue. Serve that Lord, Gaurahari, worship Gaurahari.
+He manifested the full glory of Śrī Nabadwip Dhām, as He appeared in His radiant gold, all-auspicious form of divine ecstasy, ever engaged in Krishna-*kīrtan*, which is a festival for the tongue. Serve that Lord, Gaurahari, worship Gaurahari.
 
 #### 4
 
@@ -40,13 +40,13 @@ He incessantly distributed the spiritual fortune of His own divine Name. He did 
     patitādhama-dīna-dayādra-hṛdaṁ hṛdayāśrita-yāchaka-veśa-kṛtam kṛta-veṣa-yati-śrita-nīla-giriṁ
     bhaja gaurahariṁ bhaja gauraharim
 
-He is the great benefactor whose heart is melted with compassion for the fallen and out of that feeling in His heart He accepted the dress of a beggar (the renounced order of life, *sannyās* ). After accepting this dress He took shelter in Nīlāchala (Jagannāth Purī). Serve that Lord, Gaurahari, worship Gaurahari.
+He is the great benefactor whose heart is melted with compassion for the fallen and out of that feeling in His heart He accepted the dress of a beggar (the renounced order of life, *sannyās*). After accepting this dress He took shelter in Nīlāchala (Jagannāth Purī). Serve that Lord, Gaurahari, worship Gaurahari.
 
 #### 7
 
     śruti-kīrtita-pūruṣa-rukṣma-ruchiṁ ruchi-rāga-niṣevaṇa-dāna-param paramārtha-purāṇa-vigīta-hariṁ bhaja gaurahariṁ bhaja gauraharim
 
-He is the resplendent golden Personality gloried by the Scriptures and saints; He is the greatest distributor of spontaneous loving divine service (pure transcendental attachment and service to the Lord free from all mundanity). He is the Lord whose glories are sung throughout the Scriptures describing transcendental knowledge ( *Purāṇas* ), (or, He is the Lord who takes away all apparent discord found within the *Purāṇas’* revelation of transcendental knowledge.) Serve that Lord, Gaurahari, worship Gaurahari.
+He is the resplendent golden Personality gloried by the Scriptures and saints; He is the greatest distributor of spontaneous loving divine service (pure transcendental attachment and service to the Lord free from all mundanity). He is the Lord whose glories are sung throughout the Scriptures describing transcendental knowledge (*Purāṇas*), (or, He is the Lord who takes away all apparent discord found within the *Purāṇas’* revelation of transcendental knowledge.) Serve that Lord, Gaurahari, worship Gaurahari.
 
 #### 8
 

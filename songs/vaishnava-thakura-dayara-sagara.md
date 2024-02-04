@@ -38,6 +38,6 @@ Krishna is yours, you can give Him, you have the power to do so; I who am bereft
 
 The six urges are those of speech, the mind, anger, the tongue, the belly, and the genitals.
 The six faults are overeating or collecting more monetary funds than required, overendeavouring for material objectives, unnecessary talking about mundane affairs, being too attached to or too neglectful of Scriptural rules and regulations, associating with worldly-minded persons, and lusting after mundane achievements.
-The six good qualities are enthusiasm, patience, confidence, the determination to perform activities favourable to devotional service, the resolution to abandon the association of non-devotees, and the discipline required to always follow in the footsteps of the predecessor *āchāryas* .
+The six good qualities are enthusiasm, patience, confidence, the determination to perform activities favourable to devotional service, the resolution to abandon the association of non-devotees, and the discipline required to always follow in the footsteps of the predecessor *āchāryas*.
 The six kinds of saintly association are offering gifts in charity, accepting charitable gifts, revealing one’s mind in confidence, inquiring confidentially, accepting prasādam and offering prasādam.
 

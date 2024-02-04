@@ -10,8 +10,8 @@
     maṇīvāvṛtā yena hīnā yatrāsau tatra śīghraṁ kṛpaṇa-nayana he
     nīyatāṁ kiṅkaro ’yam
 
-At the end of the night of Śrī Śrī Vṛṣabhānunandinī, She suddenly took him to Her entourage, withdrawing him from the company of throngs of griefstricken souls. A great cry of lamentation arose, their bodies were bathed by their tears. When he was thus stolen away, this world was plunged into the deep darkness of one whose eyes have been stolen away ( *hṛta* —stolen away; *nayana-maṇi* —jewel of the eye—the internal name of Saraswatī Ṭhākur is ‘Nayana-maṇi’).
-(Bereft of the vision of my Divine Master,) Oh my sorrowful eyes ( *dīna-nayana* ), (or, Oh saviour of the fallen [Dīna-nayana],) wherever that great soul may be,
+At the end of the night of Śrī Śrī Vṛṣabhānunandinī, She suddenly took him to Her entourage, withdrawing him from the company of throngs of griefstricken souls. A great cry of lamentation arose, their bodies were bathed by their tears. When he was thus stolen away, this world was plunged into the deep darkness of one whose eyes have been stolen away (*hṛta*—stolen away;*nayana-maṇi*—jewel of the eye—the internal name of Saraswatī Ṭhākur is ‘Nayana-maṇi’).
+(Bereft of the vision of my Divine Master,) Oh my sorrowful eyes (*dīna-nayana*), (or, Oh saviour of the fallen [Dīna-nayana],) wherever that great soul may be,
 please quickly take this servitor there! (Although he is my Master named ‘Nayana,’ or ‘one who brings us near,’ in his mercy he shows the miserliness of
 not taking me unto his company.)
 
@@ -74,7 +74,7 @@ He is of the same hue as Śrī Gaura, and although he, who sings the tidings of 
     gaura-kāruṇya-śaktir yatrāsau tatra śīghraṁ kṛpaṇa-nayana he
     nīyatāṁ kiṅkaro ’yam
 
-He inundated the whole universe of countless living beings—whether *brāhmaṇ* , *kṣatriya* , *vaiśya* , *śūdra* , less than *śūdra* , and even *mlechchha* —with the oceanic nectar of the Holy Name of Śrī Rādhā-Krishna. Although unapproachable by the liberationists and *yogic*
+He inundated the whole universe of countless living beings—whether *brāhmaṇ*, *kṣatriya*, *vaiśya*, *śūdra*, less than *śūdra*, and even *mlechchha*—with the oceanic nectar of the Holy Name of Śrī Rādhā-Krishna. Although unapproachable by the liberationists and *yogic*
 perfectionists, he is known as the friend of the fallen, the mercy potency of Śrī Gaurāṅga. Oh Dīna-nayana, wherever that great soul may be, please swiftly take this servitor there.
 
 #### 8

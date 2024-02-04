@@ -64,7 +64,7 @@ You are highly honoured by Śrī Krishna, the enemy of Agha and Baka, who protec
     mṛtam idam uditaṁ śrī-rādhikā-vaktra-chandrāt vraja-nava-tilakatve kḷpta vedaiḥ sphuṭaṁ me nija-nikaṭa-nivāsaṁ dehi govardhana tvam
 
 O Govardhan!
-O king of mountains! When the nectar of your name “ *Hari-dāsa-varya* : the best of the Lord’s servants” came forth from the moon-like face of Śrī Rādhikā, you were clearly established by the Vedas as the new tilak of Vraja. Please give me a dwelling near you, O Govardhan!
+O king of mountains! When the nectar of your name “*Hari-dāsa-varya*: the best of the Lord’s servants” came forth from the moon-like face of Śrī Rādhikā, you were clearly established by the Vedas as the new tilak of Vraja. Please give me a dwelling near you, O Govardhan!
 
 #### 9
 

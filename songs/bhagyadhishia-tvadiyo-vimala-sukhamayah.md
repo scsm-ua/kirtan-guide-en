@@ -51,7 +51,7 @@ As the sun eradicates all the darkness of the universe by spreading its rays and
     gaura-vāṇīn cha nāma dhṛtvā deva! tribhuvana-jayaṁ
     vajra-kalpaṁ tridaṇḍam
 
-Oh my Lord! Taking the thunder-like mendicant’s ( *sannyasī* ’s) triple staff ( *tridaṇḍa* ) and conquering the universe, you travelled from place to place distributing the teachings of Gaurāṅga ( Gaura-vāṇī ) to please the saddened hearts of the intelligentsia and to destroy the impersonalist conceptions and demoniac ideas that have grown by the influence of the age of Kali.
+Oh my Lord! Taking the thunder-like mendicant’s (*sannyasī*’s) triple staff (*tridaṇḍa*) and conquering the universe, you travelled from place to place distributing the teachings of Gaurāṅga ( Gaura-vāṇī ) to please the saddened hearts of the intelligentsia and to destroy the impersonalist conceptions and demoniac ideas that have grown by the influence of the age of Kali.
 
 #### 6
 
@@ -83,7 +83,7 @@ explaining the supreme teachings of Śrī Rūpa, appearing personally to give th
     gahaṇāj-jīvān samuddhā-vayan śrī-gaurendu-jaya-dhvajo vijayate
     svāmin bhavān nityaśaḥ
 
-You are the divine master and protector of all by destroying the philosophy of Charvak Rishi; you are a stone-like weapon to the miscreants of this world; you are like the bright sun to the darkness of Buddhism and you protect the souls of this world from the horrible hole of impersonalist thought ( *māyāvāda* ); and you fly the victory flag of Śrī Gaurachandra or you are the victory flag for Śrī Gaurendu (the poet).
+You are the divine master and protector of all by destroying the philosophy of Charvak Rishi; you are a stone-like weapon to the miscreants of this world; you are like the bright sun to the darkness of Buddhism and you protect the souls of this world from the horrible hole of impersonalist thought (*māyāvāda*); and you fly the victory flag of Śrī Gaurachandra or you are the victory flag for Śrī Gaurendu (the poet).
 
 #### 9
 
@@ -93,5 +93,5 @@ You are the divine master and protector of all by destroying the philosophy of C
     dine saṁprārthaye ’haṁ vibho! pādābje khalu nitya-bhṛtya iti
     me kāruṇyam-ātan-vatām
 
-Oh my Lord! Oh divine guardian of the current of the teachings of Śrī Gaurāṅga coming through Śrīla Saraswatī Ṭhākur; who is the protector of pure devotion; who is the dearmost of Śrī Saraswatī Ṭhākur; you are the senior-most *sannyasī* ; you are the great divine master. Oh my Lord! Today being your advent day this eternal servant of your lotus feet prays to always bathe in the shower of your mercy.
+Oh my Lord! Oh divine guardian of the current of the teachings of Śrī Gaurāṅga coming through Śrīla Saraswatī Ṭhākur; who is the protector of pure devotion; who is the dearmost of Śrī Saraswatī Ṭhākur; you are the senior-most *sannyasī*; you are the great divine master. Oh my Lord! Today being your advent day this eternal servant of your lotus feet prays to always bathe in the shower of your mercy.
 

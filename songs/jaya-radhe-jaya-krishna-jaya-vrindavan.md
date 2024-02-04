@@ -38,7 +38,7 @@ and beloved disciple of Devarṣi Nārada. All glories to the young cowherd maid
 
     jaya jaya gopeśvara vṛndāvana-mājh jaya jaya kṛṣṇa-sakhā baṭu dvija-rāj
 
-All glories, all glories to Gopeśvara Shiva, who resides in Vṛndāvan in order to protect the holy *dhām* . All glories, all glories to Krishna’s funny *brāhmaṇ* friend, Madhumaṅgal.
+All glories, all glories to Gopeśvara Shiva, who resides in Vṛndāvan in order to protect the holy *dhām*. All glories, all glories to Krishna’s funny *brāhmaṇ* friend, Madhumaṅgal.
 
 #### 7
 
@@ -50,7 +50,7 @@ All glories to Rāma-ghāṭa, where Lord Balarām performed His rāsa dance. Al
 
     jaya dvija-patnī, jaya nāga-konyā-goṇ bhaktite jā̐hārā pāilo govinda-charaṇ
 
-All glories to the wives of the proud Vedic *brāhmaṇs* . All glories to the wives of the Kālīya serpent. Through pure devotion they all obtained the lotus feet of Lord Govinda.
+All glories to the wives of the proud Vedic *brāhmaṇs*. All glories to the wives of the Kālīya serpent. Through pure devotion they all obtained the lotus feet of Lord Govinda.
 
 #### 9
 

@@ -18,7 +18,7 @@ My Lord Gaurāṅga stands at the jetty ready to ferry his servants upstream acr
 
     harināmera tarīkhāni śrī-guru-kāṇḍārī saṅkīrtana-keroyāla du’bahu pasāri
 
-The ferry-boat is the Holy Names of the Lord and the spiritual master is the captain. The oars are the outstretched arms in the *saṅkīrtan* .
+The ferry-boat is the Holy Names of the Lord and the spiritual master is the captain. The oars are the outstretched arms in the *saṅkīrtan*.
 
 #### 4
 

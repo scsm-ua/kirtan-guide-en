@@ -29,7 +29,7 @@ Always give up bad association and avoid singing mundane songs. Keep at a distan
     jogī nyāsī karmī jñānī anya-deva-pūjaka dhyānī iha-loka dūre parihari
     karma dharma duḥkha śoka jebā thāke anya joga chāḍi’ bhaja girivara-dhārī
 
-Please give up the association of the *yogīs* , *sannyāsīs* , *karmīs* , *jñānīs* , meditators, and the worshippers of the demigods. Also abandon attachment for all varieties of fruitive activities, religious duties, distresses, lamentations and material objects. Just worship Krishna, the lifter of Govardhan Hill.
+Please give up the association of the *yogīs*, *sannyāsīs*, *karmīs*, *jñānīs*, meditators, and the worshippers of the demigods. Also abandon attachment for all varieties of fruitive activities, religious duties, distresses, lamentations and material objects. Just worship Krishna, the lifter of Govardhan Hill.
 
 #### 5
 

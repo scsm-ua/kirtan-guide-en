@@ -7,7 +7,7 @@
     jaśomatī-nandana vraja-vara nāgara, gokula-rañjana kāna
     gopī-parāṇa-dhana madana manohara, kālīya-damana-vidhāna
 
-Śrī Krishna is the beloved son of Mother Yaśodā, the transcendental lover of the land of Vraja and the delight of Gokula. One of His nicknames is Kāna. He is the life and soul of the *gopīs* . He is the enchanter of Cupid and the conqueror of the Kālīya serpent.
+Śrī Krishna is the beloved son of Mother Yaśodā, the transcendental lover of the land of Vraja and the delight of Gokula. One of His nicknames is Kāna. He is the life and soul of the *gopīs*. He is the enchanter of Cupid and the conqueror of the Kālīya serpent.
 
 #### 2
 

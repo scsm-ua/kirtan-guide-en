@@ -44,7 +44,7 @@ souls, their devotional eyes full of love and affection can see Their divine for
 
     mṛdaṅga mandirā bāje suśaṅkha-dhvanita śruti-mauli-ratnamālā-dīpa nirājita
 
-In the temple during the *ārati* , the *mṛdaṅgas* resound sweetly as conchshells are blown and the ghee lamp is offered. The different parts of the Vedas within bhakti yoga have taken form in each light as a bhakti yoga light and through this form they are worshipping Their Lordships in the ārati.
+In the temple during the *ārati*, the *mṛdaṅgas* resound sweetly as conchshells are blown and the ghee lamp is offered. The different parts of the Vedas within bhakti yoga have taken form in each light as a bhakti yoga light and through this form they are worshipping Their Lordships in the ārati.
 
 #### 8
 
@@ -56,7 +56,7 @@ This type of *ārati* is only seen by the residents of Nabadwīp Dhām and the d
 
     śrī svarūpa rāmānanda rūpa-sanātana raghunātha haridāsa gadādhara dhana
 
-Śrī Chaitanya’s dear associates, Śrī Swarūp Dāmodar, Rāmānanda Rāya, Rūpa Goswāmī, Sanātan Goswāmī, Raghunāth Dās Goswāmī, Haridās Ṭhākur and Gadādhara Paṇḍit are seeing and performing this *ārati* .
+Śrī Chaitanya’s dear associates, Śrī Swarūp Dāmodar, Rāmānanda Rāya, Rūpa Goswāmī, Sanātan Goswāmī, Raghunāth Dās Goswāmī, Haridās Ṭhākur and Gadādhara Paṇḍit are seeing and performing this *ārati*.
 
 #### 10
 

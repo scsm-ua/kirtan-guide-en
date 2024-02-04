@@ -26,7 +26,7 @@ O friend! The pleasure to be had in the company of beautiful young women ultimat
     jaḍa-kāvya-raso na hikvya-rasaḥ kali-pāvana-gaura-raso hi rasaḥ alam anya-kathādy-anuśīlanayā
     bhaja godruma-kānana-kuñja-vidhum
 
-The taste of mundane poetry never provides the sweet taste of actual poetry. The sweet mellows of true poetry are verily found in descriptions of Lord Gaura, the savior of all souls in the Kali-*yuga* . The diligent study of all other topics is useless! Just worship the beautiful Moon of Godruma’s forest bowers.
+The taste of mundane poetry never provides the sweet taste of actual poetry. The sweet mellows of true poetry are verily found in descriptions of Lord Gaura, the savior of all souls in the Kali-*yuga*. The diligent study of all other topics is useless! Just worship the beautiful Moon of Godruma’s forest bowers.
 
 #### 5
 
@@ -40,7 +40,7 @@ His  left  side  enhanced  by  the  daughter  of Vṛṣabhānu, Nanda-Suta the 
     hari-kīrtana-madhya-gataṁ sva-janaiḥ pariveṣṭita-jambunadābha-harim
     nija-gauḍa-janaika-kṛpā-jaladhiṁ bhaja godruma-kānana-kuñja-vidhum
 
-In the midst of Hari-*kīrtana* , surrounded by His loving associates He is the same dark Lord Hari, but now shining with the luster of molten gold. He is the exclusive ocean of mercy for His own Gauḍīya devotees. Just worship the beautiful Moon of Godruma’s forest bowers.
+In the midst of Hari-*kīrtana*, surrounded by His loving associates He is the same dark Lord Hari, but now shining with the luster of molten gold. He is the exclusive ocean of mercy for His own Gauḍīya devotees. Just worship the beautiful Moon of Godruma’s forest bowers.
 
 #### 7
 
@@ -53,7 +53,7 @@ His island home is surrounded by the river Gaṅgā, daughter of the king of mou
 
     kali-kukkura-mudgara-bhāva-dharaṁ hari-nāma-mahauṣadha-dāna-param patitārta-dayārdra-sumūrti-dharaṁ bhaja godruma-kānana-kuñja-vidhum
 
-His mood is that of wielding a stick for chasing away the mad dog of Kali-*yuga* . He is absorbed in distributing the holy name of Hari, the great remedy for material existence. His heart is melted with compassion for the fallen souls who are suffering, and His transcendental form is very beautiful. Just worship the beautiful Moon of Godruma’s forest bowers.
+His mood is that of wielding a stick for chasing away the mad dog of Kali-*yuga*. He is absorbed in distributing the holy name of Hari, the great remedy for material existence. His heart is melted with compassion for the fallen souls who are suffering, and His transcendental form is very beautiful. Just worship the beautiful Moon of Godruma’s forest bowers.
 
 #### 9
 
@@ -75,14 +75,14 @@ Hari Himself, with a shining golden complexion. In His own abode He plays eterna
     avatāra-varaṁ paripūrṇa-kalaṁ para-tattvam ihātma-vilāsam ayam
     vraja-dhāma-rasāmbudhi-gupta-rasaṁ bhaja godruma-kānana-kuñja-vidhum
 
-He is the most excellent of *avatāras* , and within Him exists the consummate expansions of Godhead. He is the Supreme Truth, enjoying Himself here in great playfulness. He embodies the most confidential mellows flowing within the ocean of *rasa* in Vraja Dhāma. Just worship the beautiful Moon of Godruma’s forest bowers.
+He is the most excellent of *avatāras*, and within Him exists the consummate expansions of Godhead. He is the Supreme Truth, enjoying Himself here in great playfulness. He embodies the most confidential mellows flowing within the ocean of *rasa* in Vraja Dhāma. Just worship the beautiful Moon of Godruma’s forest bowers.
 
 #### 12
 
     śruti-varṇa-dhanādi na yasya kṛpā- janane balavad-bhajanena vinā tam ahaituka-bhāva-pathena sakhe
     bhaja godruma-kānana-kuñja-vidhum
 
-O friend! Without the devotional performance of purely intense *bhajana* , your vast scholarship, noble family lineage, wealth, and so on are completely ineffective for invoking the mercy of the Lord. With a service attitude that is unmotivated, just worship the beautiful Moon of Godruma’s forest bowers.
+O friend! Without the devotional performance of purely intense *bhajana*, your vast scholarship, noble family lineage, wealth, and so on are completely ineffective for invoking the mercy of the Lord. With a service attitude that is unmotivated, just worship the beautiful Moon of Godruma’s forest bowers.
 
 #### 13
 

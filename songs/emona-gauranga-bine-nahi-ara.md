@@ -35,7 +35,7 @@ They laughed and wept. Overcome with ecstasy, they rolled on the ground. The hai
     ḍākiye hā̐kiye      khol karatāle gāiye dhāiye phire
     dekhiyā śamana      tarāsa pāiye kapāṭa hānilo dvāre
 
-Loudly they called out the Holy Names playing the mṛdaṅga and *karatāls* . They sang, ran, and danced in a circle. Seeing all this, peaceful composure became afraid, fled, and knocked on people’s doors.
+Loudly they called out the Holy Names playing the mṛdaṅga and *karatāls*. They sang, ran, and danced in a circle. Seeing all this, peaceful composure became afraid, fled, and knocked on people’s doors.
 
 #### 6
 

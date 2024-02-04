@@ -32,7 +32,7 @@ Since I am lowly and very wretched, it was not my luck to reach the ocean that b
     śāstreṣv eva “na pāraye ’ham” iti yad
     gātaṁ mukundena tat
 
-Oh Lord, even all the demigods headed by Lord Brahmā feel frustrated by their inability to (fittingly) sing the glories of all your divine qualities. What, then, can be said of the attempt of a fallen soul, a mere human like me? Surely, the learned will never waste their eloquent words eulogising this statement, since even the Supreme Personality of Godhead, Lord Śrī Krishna Himself, has sung in the Scriptures His celebrated confession *na pāraye ’ham* —‘I am unable (to reciprocate your devotion).’
+Oh Lord, even all the demigods headed by Lord Brahmā feel frustrated by their inability to (fittingly) sing the glories of all your divine qualities. What, then, can be said of the attempt of a fallen soul, a mere human like me? Surely, the learned will never waste their eloquent words eulogising this statement, since even the Supreme Personality of Godhead, Lord Śrī Krishna Himself, has sung in the Scriptures His celebrated confession *na pāraye ’ham*—‘I am unable (to reciprocate your devotion).’
 
 #### 4
 
@@ -74,7 +74,7 @@ By writing many books and by multifarious methods recognised by the pure devotee
     tasyāṁśī bhagavān svayaṁ rasa-vapuḥ
     kṛṣṇo bhavān tat pradaḥ
 
-Merely the effulgence of His divine abode has been designated by the title ‘Brahman’ in the Vedas, and only the expansion of an expansion of His expansion is sought after with great tribulation by the foremost *yogīs* . The most exalted of the liberated souls shine resplendent as the bumblebees at His lotus feet. The Primeval Origin of even the Original Śrī Nārāyaṇa who is the Lord of the spiritual sky above Brahman: He is the Original Supreme Lord, the personification of all nectarean mellows—Śrī Krishna—and He is the one that you give.
+Merely the effulgence of His divine abode has been designated by the title ‘Brahman’ in the Vedas, and only the expansion of an expansion of His expansion is sought after with great tribulation by the foremost *yogīs*. The most exalted of the liberated souls shine resplendent as the bumblebees at His lotus feet. The Primeval Origin of even the Original Śrī Nārāyaṇa who is the Lord of the spiritual sky above Brahman: He is the Original Supreme Lord, the personification of all nectarean mellows—Śrī Krishna—and He is the one that you give.
 
 #### 8
 

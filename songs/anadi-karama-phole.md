@@ -6,7 +6,7 @@
     patitaṁ māṁ viṣame bhavāmbudhau kṛpayā tava pāda-paṅkaja-
     sthita-dhūli-sadṛśaṁ vichintaya
 
-“Oh son of Nanda Mahārāj, I am Your eternal servant, yet because of my own *karma* , I have fallen into this terrible ocean of birth and death. Please accept this fallen soul and consider me a particle of dust at Your holy lotus feet.”
+“Oh son of Nanda Mahārāj, I am Your eternal servant, yet because of my own *karma*, I have fallen into this terrible ocean of birth and death. Please accept this fallen soul and consider me a particle of dust at Your holy lotus feet.”
 
 #### 1
 

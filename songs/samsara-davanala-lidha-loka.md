@@ -26,7 +26,7 @@ I worship the lotus feet of the Divine Master, who personally engages in many ty
     vande guroḥ śrī-charaṇāravindam
 
 I worship the lotus feet of the Divine Master,
-who fully satisfies the devotees of Śrī Krishna with four types of nectarean prasādam foodstuffs that are chewed, sucked, licked, and drunk (that is, he brings about the dispellation of mundanity and the awakening of the joy of love that develops from respecting *prasādam* ), and he is thereby himself satisfied.
+who fully satisfies the devotees of Śrī Krishna with four types of nectarean prasādam foodstuffs that are chewed, sucked, licked, and drunk (that is, he brings about the dispellation of mundanity and the awakening of the joy of love that develops from respecting *prasādam*), and he is thereby himself satisfied.
 
 #### 5
 

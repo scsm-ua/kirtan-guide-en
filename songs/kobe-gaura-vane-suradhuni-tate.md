@@ -28,5 +28,5 @@ And when will I bow down before a resident of the holy *dhām* and beg from him 
     gauḍa-vraja-bane,    bheda nā heribo, hoibo varaja-vāsī
     dhāmera svarūpa,    sphuribe nayane, hoibo rādhāra dāsī
 
-Then I shall see no difference between the forest of Gauḍa and Vraja, and I will be transformed into a resident of the *dhām* . The true nature of the Lord’s abode will manifest itself to my eyes, and I will become a maidservant of Śrīmatī Rādhārāṇī.
+Then I shall see no difference between the forest of Gauḍa and Vraja, and I will be transformed into a resident of the *dhām*. The true nature of the Lord’s abode will manifest itself to my eyes, and I will become a maidservant of Śrīmatī Rādhārāṇī.
 
