@@ -1,6 +1,8 @@
 # Śrī Sāraswat-ārati
 
-## by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj Translated by Devamoyī Devī Dasī
+## by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+
+## Translated by Devamoyī Devī Dasī
 
 #### 1
 

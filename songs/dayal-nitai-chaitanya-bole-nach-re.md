@@ -4,17 +4,20 @@
 
 #### 1
 
-    ‘dayāl nitāi chaitanya’ bo’le nāch re āmār man nāch re āmār man, nāch re āmār man
+    ‘dayāl nitāi chaitanya’ bo’le nāch re āmār man
+    nāch re āmār man, nāch re āmār man
 
 Oh my mind, just dance! Oh my mind, just dance! Oh my mind, please dance, chanting, “Dayāl Nitāi Chaitanya!”
 
 #### 2
 
-    (emon dayāl to nāi he, mār kheye prema dey) (tabe) aparādha dūre jābe, pābe prema-dhan
+    (emon dayāl to nāi he, mār kheye prema dey)
+    (tabe) aparādha dūre jābe, pābe prema-dhan
     (aparādhera-vichāra to nāi he)
     takhon kṛṣṇa-nāme ruchi habe, ghuchibe bandhan
 
 Such a merciful personality as Nityānanda Prabhu is not to be found anywhere. He suffers a beating from Jagāi and Mādhāi and still gives them love of God.
+
 When you become offenceless, you will obtain love of God; but in these Names of Chaitanya and Nitāi there is no consideration of offences. Once you have a taste for the Holy Name of Krishna, bondage to this world will come to an end.
 
 #### 3
