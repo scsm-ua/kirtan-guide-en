@@ -4,30 +4,30 @@
 
 #### 1
 
-    śrī-rūpa-mañjarī-pada, sei mora sampada,
+    śrī-rūpa-mañjarī-pada,    sei mora sampada,
         sei mora bhajana-pūjana
-    sei mora prāṇa-dhana,  sei mora ābharaṇa,
+    sei mora prāṇa-dhana,    sei mora ābharaṇa,
         sei mora jīvanera jīvana
 
 #### 2
 
-    sei mora rasa-nidhi,   sei mora vāñchā-siddhi,
+    sei mora rasa-nidhi,    sei mora vāñchā-siddhi,
         sei mora vedera dharama
     sei brata, sei tapa,    sei mora mantra-japa,
         sei mora dharama-karama
 
 #### 3
 
-    anukūla hobe viddhi,  se-pade hoibe siddhi,
+    anukūla hobe viddhi,    se-pade hoibe siddhi,
         nirakhibo e dui nayane
-    se rūpa-mādhurī-rāśi,  prāṇa-kuvalaya-śaśī,
+    se rūpa-mādhurī-rāśi,    prāṇa-kuvalaya-śaśī,
         praphullita hobe niśi-dine
 
 #### 4
 
-    tuyā adarśana-ahi,        gorole jāralo dehi,
+    tuyā adarśana-ahi,    gorole jāralo dehi,
         chiro-dina tāpita jīvana
-    hā hā rūpa kara dayā, deho more pada-chāyā,
+    hā hā rūpa kara dayā,    deho more pada-chāyā,
         narottama loilo śaraṇa
 
 Commentary by Śrīla B.R. Śrīdhar Dev-Goswāmī: 
