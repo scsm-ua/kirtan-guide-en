@@ -2,13 +2,15 @@
 
 #### 1
 
-    hari he dayāla mora jaya rādhā-nātha bāro bāro ei-bāro loho nija sātha
+    hari he dayāla mora jaya rādhā-nātha
+    bāro bāro ei-bāro loho nija sātha
 
 O Hari! O my merciful Lord! All glories to You, the Lord of Rādhā! Many times I have avoided You, but this time please take me as Your own.
 
 #### 2
 
-    bahu joni bhrami nātha! loinu śaraṇa nija-guṇe kṛpā kara adhama tāraṇa
+    bahu joni bhrami nātha! loinu śaraṇa
+    nija-guṇe kṛpā kara adhama tāraṇa
 
 O Lord, after wandering through many wombs, I have taken refuge in You. Be merciful and deliver this wretched soul by Your divine power.
 
@@ -21,13 +23,15 @@ O lover of Rādhā, You are the cause of the universe and the life of the univer
 
 #### 4
 
-    bhuvana-maṅgala tumi bhuvanera pati tumi upekṣile nātha, ki hoibe gati
+    bhuvana-maṅgala tumi bhuvanera pati
+    tumi upekṣile nātha, ki hoibe gati
 
 You bring about auspiciousness for the world, and You are the master of all the worlds as well. O Lord, what will be my refuge if You neglect me?
 
 #### 5
 
-    bhāviyā dekhinu ei jagata-mājhāre tomā vinā keho nāhi e dāse uddhāre
+    bhāviyā dekhinu ei jagata-mājhāre
+    tomā vinā keho nāhi e dāse uddhāre
 
 I have considered that in this world there is no one except You who can deliver this fallen servant.
 
