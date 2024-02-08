@@ -11,7 +11,7 @@
     parihṛtya gṛhaṁ kali-bhāva-mayaṁ
     bhaja godruma-kānana-kuñja-vidhum
 
-If your heart wishes to be always absorbed in drinking the ambrosial mellows of the lotus feet of Lord Hari, then give up mundane household life, full of Kali-*yuga* quarrels and strife, and just worship the beautiful Moon of Godruma’s forest bowers.
+If your heart wishes to be always absorbed in drinking the ambrosial mellows of the lotus feet of Lord Hari, then give up mundane household life, full of *Kali-yuga* quarrels and strife, and just worship the beautiful Moon of Godruma’s forest bowers.
 
 #### 2
 
@@ -38,7 +38,7 @@ O friend! The pleasure to be had in the company of beautiful young women ultimat
     alam anya-kathādy-anuśīlanayā
     bhaja godruma-kānana-kuñja-vidhum
 
-The taste of mundane poetry never provides the sweet taste of actual poetry. The sweet mellows of true poetry are verily found in descriptions of Lord Gaura, the savior of all souls in the Kali-*yuga*. The diligent study of all other topics is useless! Just worship the beautiful Moon of Godruma’s forest bowers.
+The taste of mundane poetry never provides the sweet taste of actual poetry. The sweet mellows of true poetry are verily found in descriptions of Lord Gaura, the savior of all souls in the *Kali-yuga*. The diligent study of all other topics is useless! Just worship the beautiful Moon of Godruma’s forest bowers.
 
 #### 5
 
@@ -74,7 +74,7 @@ His island home is surrounded by the river Gaṅgā, daughter of the king of mou
     patitārta-dayārdra-sumūrti-dharaṁ
     bhaja godruma-kānana-kuñja-vidhum
 
-His mood is that of wielding a stick for chasing away the mad dog of Kali-*yuga*. He is absorbed in distributing the holy name of Hari, the great remedy for material existence. His heart is melted with compassion for the fallen souls who are suffering, and His transcendental form is very beautiful. Just worship the beautiful Moon of Godruma’s forest bowers.
+His mood is that of wielding a stick for chasing away the mad dog of *Kali-yuga*. He is absorbed in distributing the holy name of Hari, the great remedy for material existence. His heart is melted with compassion for the fallen souls who are suffering, and His transcendental form is very beautiful. Just worship the beautiful Moon of Godruma’s forest bowers.
 
 #### 9
 
