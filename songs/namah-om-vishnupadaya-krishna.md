@@ -1,4 +1,4 @@
-# Praṇām Mantra to Śrīla Swāmī Mahārāj
+# Praṇām Mantra
 
 ## to Śrīla A.C Bhaktivedānta Swāmī Mahārāj Prabhupād
 
