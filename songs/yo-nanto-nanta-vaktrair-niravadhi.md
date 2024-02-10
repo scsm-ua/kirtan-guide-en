@@ -106,7 +106,7 @@ Nityānanda travelled from place to place with the crest jewel of the renounced 
     śrī-nityānanda-chandraṁ bhaja bhaja satataṁ
         gaura-kṛṣṇa-pradaṁ tam
 
-Nityānanda Prabhu was ordered by the golden moon, Śrīman Mahāprabhu, to deliver the masses by the wide distribution of Lord Krishna’s Holy Names. One evening, Lord Nityānanda encountered those two drunken and sinful brothers, Jagāi and Mādhāi, who were previously *brahma-daitya* demons of the first order, acting under the devastating spell of Kali-yuga. Suddenly, Nitāi was attacked by Mādhāi, whereupon His body became smeared with blood. In response, Lord Nitāi exhibited deep affection for the welfare of the two brothers and rescued them from their abominable condition. Let us eternally worship that great personality Śrī Nityānandachandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
+Nityānanda Prabhu was ordered by the golden moon, Śrīman Mahāprabhu, to deliver the masses by the wide distribution of Lord Krishna’s Holy Names. One evening, Lord Nityānanda encountered those two drunken and sinful brothers, Jagāi and Mādhāi, who were previously *brahma-daitya* demons of the first order, acting under the devastating spell of *Kali-yuga*. Suddenly, Nitāi was attacked by Mādhāi, whereupon His body became smeared with blood. In response, Lord Nitāi exhibited deep affection for the welfare of the two brothers and rescued them from their abominable condition. Let us eternally worship that great personality Śrī Nityānandachandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
 
 #### 9
 

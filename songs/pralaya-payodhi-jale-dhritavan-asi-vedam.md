@@ -80,7 +80,7 @@ Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of 
         dhūmaketum iva kim api karālam
     keśava dhṛta-kalki-śarīra jaya jagadīśa hare
 
-Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of Kalki! All glories to You! You appear like a comet and carry a terrifying sword for bringing about the annihilation of the wicked barbarian men at the end of the Kali-yuga.
+Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of Kalki! All glories to You! You appear like a comet and carry a terrifying sword for bringing about the annihilation of the wicked barbarian men at the end of the *Kali-yuga*.
 
 #### 11
 
@@ -99,5 +99,5 @@ Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed these ten di
     mlechān mūrchayate daśākṛti-kṛte
             kṛṣṇāya tubhyaṁ namaḥ
 
-Oh Lord Krishna, I offer my obeisances unto You, who appear in the forms of these ten incarnations. In the form of Matsya You rescue the Vedas, and as Kūrma You bear the Mandara Mountain on Your back. As Varāha You lift the earth with Your tusk, and in the form of Narasiṁha You tear open the chest of the demon Hiraṇyakaśipu. In the form of Vāmana You trick the demoniac king Bali by asking him for only three steps of land, and then You take away the whole universe from him by expanding Your steps. As Paraśurāma You slay all of the wicked kṣatriyas, and as Rāmachandra You conquer the rākṣasa king Rāvaṇa. In the form of Balarām You carry a plough with which You subdue the wicked and draw toward You the River Yamunā. As Lord Buddha You show compassion toward all the living beings suffering in this world, and at the end of the Kali-yuga You appear as Kalki to bewilder the mlechas [degraded low-class men].
+Oh Lord Krishna, I offer my obeisances unto You, who appear in the forms of these ten incarnations. In the form of Matsya You rescue the Vedas, and as Kūrma You bear the Mandara Mountain on Your back. As Varāha You lift the earth with Your tusk, and in the form of Narasiṁha You tear open the chest of the demon Hiraṇyakaśipu. In the form of Vāmana You trick the demoniac king Bali by asking him for only three steps of land, and then You take away the whole universe from him by expanding Your steps. As Paraśurāma You slay all of the wicked kṣatriyas, and as Rāmachandra You conquer the rākṣasa king Rāvaṇa. In the form of Balarām You carry a plough with which You subdue the wicked and draw toward You the River Yamunā. As Lord Buddha You show compassion toward all the living beings suffering in this world, and at the end of the *Kali-yuga* You appear as Kalki to bewilder the mlechas [degraded low-class men].
 

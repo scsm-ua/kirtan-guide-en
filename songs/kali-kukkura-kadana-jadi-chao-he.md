@@ -8,7 +8,7 @@
     kaliyuga-pāvana    kali-bhaya-nāśana,
         śrī śachī-nandana gāo he
 
-Oh mind, you are like a miserable dog of Kali-yuga! If you want deliverance, then sing the Holy Name of the son of Śachī, for He is the saviour and destroyer of fear in this dark age of Kali.
+Oh mind, you are like a miserable dog of *Kali-yuga*! If you want deliverance, then sing the Holy Name of the son of Śachī, for He is the saviour and destroyer of fear in this dark age of Kali.
 
 #### 2
 
