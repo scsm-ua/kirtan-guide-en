@@ -160,5 +160,5 @@ one day we may drink, by your grace.
 O personification of perfect conclusions\
 inconceivably one, yet different!\
 I sing this prayer at your *ārati*,\
-with joy—your humble servant.
+with joy — your humble servant.
 

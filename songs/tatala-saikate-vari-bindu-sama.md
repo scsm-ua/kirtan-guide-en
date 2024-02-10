@@ -9,7 +9,7 @@
     tohe visari mana    tāhe samarpala
         tava majhu hobo kon kāje
 
-O Lord, completely forgetting You, I have offered my mind unto the society of women, children, and friends— but this experience has been just like offering a drop of water unto the burning hot sands of the beach. How can I possibly be relieved of this great misery?
+O Lord, completely forgetting You, I have offered my mind unto the society of women, children, and friends — but this experience has been just like offering a drop of water unto the burning hot sands of the beach. How can I possibly be relieved of this great misery?
 
 #### 2
 

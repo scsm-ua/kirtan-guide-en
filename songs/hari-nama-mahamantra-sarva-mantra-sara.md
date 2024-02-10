@@ -13,10 +13,10 @@
     sei nāma-parāyaṇ sādhu, mahājana
     tāhādera nindā nā koriho kadāchana
 
-Hare Krishna Mahāmantra— of all mantras the best,\
+Hare Krishna Mahāmantra — of all mantras the best,\
 Throughout the world is preached by saints’ potent grace behest;\
 Such saints to the Name devoted, such pure souls great:\
-Never dare offend them— never show them hate.
+Never dare offend them — never show them hate.
 
 #### 2
 
@@ -27,7 +27,7 @@ Never dare offend them— never show them hate.
 
 Lord Krishna, son of Nanda, of all lords the Leader —\
 The great Shiva and all the gods serve His feet forever;\
-The touchstone of the Name is Krishna incarnate—\
+The touchstone of the Name is Krishna incarnate —\
 His Pastimes, nature, form, also think not separate.
 
 #### 3
@@ -63,7 +63,7 @@ Never keep their company, know them as offenders.
     se nāma-mahimā-sindhu ke pāibe pāra
     atistuti bole jei—sei durāchāra
 
-The glories of the Name— all Scriptures’ exaltation;\
+The glories of the Name — all Scriptures’ exaltation;\
 Dare not think their praise to be exaggeration.\
 Agastya, Ananta, Brahmā, Shiva, etc., ever\
 Sing the glories of that Name with full-hearted fervour.\
@@ -75,8 +75,8 @@ Whoever says ‘exaggeration’ have their sin to blame.
     kṛṣṇa-nāmāboli nitya golokera dhana
     kalpita, prākṛta, bhāve—aparādhi-jana
 
-The Holy Names of Krishna—eternal wealth of Goloka:\
-Who thinks those Names imaginary, mundane—he’s offender.
+The Holy Names of Krishna — eternal wealth of Goloka:\
+Who thinks those Names imaginary, mundane — he’s offender.
 
 #### 7
 
@@ -95,7 +95,7 @@ Deceived by illusion, perpetually to suffer.
     atulya śrī-kṛṣṇa-nāma pūrṇa-rasa-nidhi
     tāra sama nā bhāviha śubha-karma ādi
 
-Incomparable Name of Krishna—the treasure of ecstasy:\
+Incomparable Name of Krishna — the treasure of ecstasy:\
 Never dare compare it with auspicious piety.
 
 #### 9

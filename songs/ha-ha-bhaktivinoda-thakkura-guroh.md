@@ -28,7 +28,7 @@ Alas, alas! Oh Bhakti Vinod Ṭhākur, Oh Supreme Guru, for twenty-two years thi
     śrī-śrī-gaura-mahāprabhoḥ prakaṭitā
         viśvaṁ samanvagrahīt
 
-Since I am lowly and very wretched, it was not my luck to reach the ocean that bestows the fortune of surrender—the ocean of the ecstasy of bathing in a particle of the dust of your holy lotus feet. Yet due to your magnanimous nature, you gave your grace to the whole universe, personally revealing your supereminence as the personification of the mercy potency of Śrī Gaurāṅga. (That is, by coming into this world, I received his grace.)
+Since I am lowly and very wretched, it was not my luck to reach the ocean that bestows the fortune of surrender — the ocean of the ecstasy of bathing in a particle of the dust of your holy lotus feet. Yet due to your magnanimous nature, you gave your grace to the whole universe, personally revealing your supereminence as the personification of the mercy potency of Śrī Gaurāṅga. (That is, by coming into this world, I received his grace.)
 
 #### 3
 
@@ -41,7 +41,7 @@ Since I am lowly and very wretched, it was not my luck to reach the ocean that b
     śāstreṣv eva “na pāraye ’ham” iti yad
         gātaṁ mukundena tat
 
-Oh Lord, even all the demigods headed by Lord Brahmā feel frustrated by their inability to (fittingly) sing the glories of all your divine qualities. What, then, can be said of the attempt of a fallen soul, a mere human like me? Surely, the learned will never waste their eloquent words eulogising this statement, since even the Supreme Personality of Godhead, Lord Śrī Krishna Himself, has sung in the Scriptures His celebrated confession *na pāraye ’ham*—‘I am unable (to reciprocate your devotion).’
+Oh Lord, even all the demigods headed by Lord Brahmā feel frustrated by their inability to (fittingly) sing the glories of all your divine qualities. What, then, can be said of the attempt of a fallen soul, a mere human like me? Surely, the learned will never waste their eloquent words eulogising this statement, since even the Supreme Personality of Godhead, Lord Śrī Krishna Himself, has sung in the Scriptures His celebrated confession *na pāraye ’ham* — ‘I am unable (to reciprocate your devotion).’
 
 #### 4
 
@@ -54,7 +54,7 @@ Oh Lord, even all the demigods headed by Lord Brahmā feel frustrated by their i
     buddhiṁ buddhi-matāṁ vibheda hi tadā
         dhātrā bhavān preṣitaḥ
 
-At a time when religion was evaluated in terms of bodily relationship, saintliness was determined by ignorance, and *yoga* practice was motivated by sensual pleasure; when scholarship was cultivated just for voidism, *japa* was conducted for the sake of fame, and penance was performed out of vindictiveness; when charity was given out of pride, and on the pretext of spontaneous devotion the most gross, sinful acts were perpetrated—and in all such anomalous situations even the intelligentsia were at loggerheads with one another... at that very time, you were sent by the Almighty Creator.
+At a time when religion was evaluated in terms of bodily relationship, saintliness was determined by ignorance, and *yoga* practice was motivated by sensual pleasure; when scholarship was cultivated just for voidism, *japa* was conducted for the sake of fame, and penance was performed out of vindictiveness; when charity was given out of pride, and on the pretext of spontaneous devotion the most gross, sinful acts were perpetrated — and in all such anomalous situations even the intelligentsia were at loggerheads with one another... at that very time, you were sent by the Almighty Creator.
 
 #### 5
 
@@ -80,7 +80,7 @@ As the universally cooling moon is beautified by diffusing its nectarean rays, n
     premāmbho-nidhi-vigrahasya bhavato
         māhātmya-sīmā na tat
 
-By writing many books and by multifarious methods recognised by the pure devotees, you have demonstrated the preaching of pure devotional service unto the Supreme Lord, for the benefit of the whole world. We have heard of similar achievements in previous times by stalwart scholars such as Śrī Rāmānuja and many other Āchāryas; but the glory of you—the very embodiment of the nectar of divine love—does not end (cannot be confined) here.
+By writing many books and by multifarious methods recognised by the pure devotees, you have demonstrated the preaching of pure devotional service unto the Supreme Lord, for the benefit of the whole world. We have heard of similar achievements in previous times by stalwart scholars such as Śrī Rāmānuja and many other Āchāryas; but the glory of you — the very embodiment of the nectar of divine love — does not end (cannot be confined) here.
 
 #### 7
 
@@ -93,7 +93,7 @@ By writing many books and by multifarious methods recognised by the pure devotee
     tasyāṁśī bhagavān svayaṁ rasa-vapuḥ
         kṛṣṇo bhavān tat pradaḥ
 
-Merely the effulgence of His divine abode has been designated by the title ‘Brahman’ in the Vedas, and only the expansion of an expansion of His expansion is sought after with great tribulation by the foremost *yogīs*. The most exalted of the liberated souls shine resplendent as the bumblebees at His lotus feet. The Primeval Origin of even the Original Śrī Nārāyaṇa who is the Lord of the spiritual sky above Brahman: He is the Original Supreme Lord, the personification of all nectarean mellows—Śrī Krishna—and He is the one that you give.
+Merely the effulgence of His divine abode has been designated by the title ‘Brahman’ in the Vedas, and only the expansion of an expansion of His expansion is sought after with great tribulation by the foremost *yogīs*. The most exalted of the liberated souls shine resplendent as the bumblebees at His lotus feet. The Primeval Origin of even the Original Śrī Nārāyaṇa who is the Lord of the spiritual sky above Brahman: He is the Original Supreme Lord, the personification of all nectarean mellows — Śrī Krishna — and He is the one that you give.
 
 #### 8
 
@@ -119,7 +119,7 @@ Situated in the topmost region of the absolutely inconceivable spiritual sky is 
     śrī-rādhā-pada-sevanāmṛtam aho
         tad dātum īśo bhavān
 
-The internal purport is known to Śrī Svarūp Dāmodar by the sanction of Śrī Gaurachandra, of that which is adored by Śrī Sanātan Goswāmī and distributed by the preceptors realised in transcendental mellows, headed by Śrī Rūpa Goswāmī; that which is tasted and enhanced by Śrī Raghunāth Dās Goswāmī and followers and carefully protected by the votaries headed by Śrī Jīva Prabhu; and that which (from a respectful distance) is venerated by great personalities such as Śrī Śuka, Lord Śiva, the chief of the demigods, and Lord Brahmā, the grandfather of all beings—Oh wonder of wonders! the nectarean rapture of servitude unto Śrī Rādhikā—that, too, you can give us.
+The internal purport is known to Śrī Svarūp Dāmodar by the sanction of Śrī Gaurachandra, of that which is adored by Śrī Sanātan Goswāmī and distributed by the preceptors realised in transcendental mellows, headed by Śrī Rūpa Goswāmī; that which is tasted and enhanced by Śrī Raghunāth Dās Goswāmī and followers and carefully protected by the votaries headed by Śrī Jīva Prabhu; and that which (from a respectful distance) is venerated by great personalities such as Śrī Śuka, Lord Śiva, the chief of the demigods, and Lord Brahmā, the grandfather of all beings — Oh wonder of wonders! the nectarean rapture of servitude unto Śrī Rādhikā — that, too, you can give us.
 
 #### 10
 

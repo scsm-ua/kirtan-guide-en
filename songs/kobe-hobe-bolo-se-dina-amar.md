@@ -17,7 +17,7 @@ Please tell me, when will that day be mine—when my offences will end and a tas
     sakale mānada,    āpani amānī,
         hoye āsvādibo nāma-rasa-sār
 
-Considering myself lower than a blade of grass, bringing the quality of forbearance into my heart, showing respect to all, myself being freed from all false pride— when will I taste the essence of the liquid nectar of the Holy Name?
+Considering myself lower than a blade of grass, bringing the quality of forbearance into my heart, showing respect to all, myself being freed from all false pride — when will I taste the essence of the liquid nectar of the Holy Name?
 
 #### 3
 

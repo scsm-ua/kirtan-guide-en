@@ -63,7 +63,7 @@ O Supreme Godhead, I offer my obeisances unto You. O Dāmodar! O Ananta! O Viṣ
     tathā prema-bhaktiṁ svakāṁ me prayacha
     na mokṣe graho me ’sti dāmodareha
 
-O Lord Dāmodar, just as the two sons of Kuvera— Maṇigrīva and Nalakīśvara— were delivered from the curse of Nārada and made into great devotees by You in Your form as a baby tied with rope to a wooden grinding mortar, in the same way, please give to me Your own prema-bhakti. I only long for this and have no desire for any kind of liberation.
+O Lord Dāmodar, just as the two sons of Kuvera — Maṇigrīva and Nalakīśvara — were delivered from the curse of Nārada and made into great devotees by You in Your form as a baby tied with rope to a wooden grinding mortar, in the same way, please give to me Your own prema-bhakti. I only long for this and have no desire for any kind of liberation.
 
 #### 8
 

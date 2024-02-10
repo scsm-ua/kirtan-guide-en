@@ -17,7 +17,7 @@ Filled with tremendous trepidation (*mahā-bhaya*), the *jīva*-souls are carrie
     bhuvana-mohana-māyā    kemane re utarabi
         labhibi kemane kānāiyā?
 
-O Mind! What can you do about my great misfortune? Mahāmāyā bewilders the whole universe, how will you ever overcome her? How will you attain Kānāi-lāl— the youthful Krishna of Goloka Vṛndāvan?
+O Mind! What can you do about my great misfortune? Mahāmāyā bewilders the whole universe, how will you ever overcome her? How will you attain Kānāi-lāl — the youthful Krishna of Goloka Vṛndāvan?
 
 #### 3
 

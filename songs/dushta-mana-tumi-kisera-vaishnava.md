@@ -10,7 +10,7 @@
     pratiṣṭhāra tore,    nirjanera ghore,
         tava ‘harināma’ kevala ‘kaitava’
 
-Oh wicked mind! What kind of Vaiṣṇava do you think you are? Your pretentious show of chanting Lord Hari’s Holy Name in a solitary place is only for the sake of attaining the false prestige of a worldly reputation—it is nothing but pure hypocrisy.
+Oh wicked mind! What kind of Vaiṣṇava do you think you are? Your pretentious show of chanting Lord Hari’s Holy Name in a solitary place is only for the sake of attaining the false prestige of a worldly reputation — it is nothing but pure hypocrisy.
 
 #### 2
 
@@ -37,7 +37,7 @@ When you claim wealth as your own, it creates in you ever-increasing desires for
     vaiṣṇavī pratiṣṭhā,    tāte kara niṣṭhā,
         tāhā nā bhajile labhibe raurava
 
-The demon Rāvaṇa (lust-incarnate) fought with Lord Rāmachandra (love-incarnate) in order to gain the tree of worldly reputation—but that oasis turned out to be but a mirage cast in the desert wasteland of the Lord’s illusory material potency. Please cultivate fixed determination to attain only the steady and solid platform whereupon a Vaiṣṇava ever stands. If you neglect worshiping the Lord from this position, then you will ultimately attain a hellish existence.
+The demon Rāvaṇa (lust-incarnate) fought with Lord Rāmachandra (love-incarnate) in order to gain the tree of worldly reputation — but that oasis turned out to be but a mirage cast in the desert wasteland of the Lord’s illusory material potency. Please cultivate fixed determination to attain only the steady and solid platform whereupon a Vaiṣṇava ever stands. If you neglect worshiping the Lord from this position, then you will ultimately attain a hellish existence.
 
 #### 5
 
@@ -127,7 +127,7 @@ This is the standard of befitting renunciation, and one who realizes this is mos
     kṛṣṇer sambandha,    aprākṛta-skandha,
         kobhu nāhe tāhā jaḍer sambhava
 
-Oh mind, please reject the company of two types of persons—those desiring impersonal liberation from the material world, and those who desire to enjoy the pleasure of material sense objects. Both of these are equally non-devotees. The things that are used in relation to Lord Krishna are objects belonging directly to the transcendental realm, and thus having nothing to do with matter they cannot be either owned or forsaken by persons interested in mundane enjoyment or renunciation.
+Oh mind, please reject the company of two types of persons — those desiring impersonal liberation from the material world, and those who desire to enjoy the pleasure of material sense objects. Both of these are equally non-devotees. The things that are used in relation to Lord Krishna are objects belonging directly to the transcendental realm, and thus having nothing to do with matter they cannot be either owned or forsaken by persons interested in mundane enjoyment or renunciation.
 
 #### 15
 
@@ -145,7 +145,7 @@ An impersonal philospher is opposed to thinking of Krishna as an object of devot
     hari-pada chāḍi’,    nirjanatā bāḍi,
         labhiyā ki phol, phalgu se vaibhava
 
-One who falsely gives up things that could actually be used in the Lord’s service proudly calls himself a ‘renunciate,’ but unfortunately he can never become a Vaiṣṇava by such an attitude. Abandoning his servitorship to the lotus feet of Lord Hari, and resigning himself to his solitary home—whatever is gained by that exercise can only be the worthless treasure of deception.
+One who falsely gives up things that could actually be used in the Lord’s service proudly calls himself a ‘renunciate,’ but unfortunately he can never become a Vaiṣṇava by such an attitude. Abandoning his servitorship to the lotus feet of Lord Hari, and resigning himself to his solitary home — whatever is gained by that exercise can only be the worthless treasure of deception.
 
 #### 17
 

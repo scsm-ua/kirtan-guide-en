@@ -11,7 +11,7 @@
     varadābhaya-dāyaka-pūjya-padaṁ
     praṇamāmi sadā prabhupāda-padam
 
-His lotus feet are served in devotion by multitudes of high, virtuous souls; he is the establisher of the religion of the age as he is the presiding monarch of the ViśvaVaiṣṇava-Rāja-Sabhā—the universal society of the pure devotees that are the true ‘kings’ or guides of all; and he is the fulfiller of the most cherished desires of those who dispel fear (for all souls). I make my obeisance unto the lotus feet of that illustrious great soul, worshipable by one and all— perpetually do I make my obeisance unto the radiance emanating from the toenails of the holy feet of my Lord.
+His lotus feet are served in devotion by multitudes of high, virtuous souls; he is the establisher of the religion of the age as he is the presiding monarch of the ViśvaVaiṣṇava-Rāja-Sabhā—the universal society of the pure devotees that are the true ‘kings’ or guides of all; and he is the fulfiller of the most cherished desires of those who dispel fear (for all souls). I make my obeisance unto the lotus feet of that illustrious great soul, worshipable by one and all — perpetually do I make my obeisance unto the radiance emanating from the toenails of the holy feet of my Lord.
 
 #### 2
 
