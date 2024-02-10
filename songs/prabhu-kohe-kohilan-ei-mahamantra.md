@@ -2,6 +2,7 @@
 
     hare kṛṣṇa hare kṛṣṇa kṛṣṇa kṛṣṇa hare hare
     hare rāma hare rāma rāma rāma hare hare
+
     “prabhu kohe—kohilaṅ ei mahāmantra
     ihā japa giyā sabe koriyā nirbandha
     ihā hoite sarva-siddhi hoibe sabāra
