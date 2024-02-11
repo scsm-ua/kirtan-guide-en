@@ -70,7 +70,7 @@ You always fully nourish the cows everywhere with your land, water, plains, and 
 
     sura-pati-kṛta-dīrgha-drohato goṣṭha-rakṣāṁ
     tava nava-gṛha-rūpasyāntare kurvataiva
-    agha-baka-ripuṇochchhair datta-māna drutaṁ me\
+    agha-baka-ripuṇochchhair datta-māna drutaṁ me
     nija-nikaṭa-nivāsaṁ dehi govardhana tvam
 
 O Govardhan!\
