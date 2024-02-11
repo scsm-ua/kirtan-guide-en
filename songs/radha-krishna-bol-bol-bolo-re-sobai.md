@@ -32,3 +32,4 @@ If you just understand that the spirit soul is the eternal servant of Krsna, you
 
 Simply chant “Rādhā-Krishna!” and join with us. Those are the only alms we beg. Chant, chant “Rādhā-Krishna!” Everyone chant! “All dangers will be gone when that Name is chanted,” says Bhakti Vinod Ṭhākur. Chant, chant “Rādhā-Krishna!” Everyone chant!
 
+> verse parentheses = non bold

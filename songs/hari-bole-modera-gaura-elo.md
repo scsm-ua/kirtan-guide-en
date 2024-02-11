@@ -58,3 +58,4 @@ Maddened with ecstasy, Lord Nityānanda dances in the fields of Godruma. Due to 
 
 In what indescribable happiness did all living beings swim while Lord Gaurachandra was dancing? By seeing and hearing of such Pastimes, the hearts of the atheists break.
 
+> verse parentheses = non bold
