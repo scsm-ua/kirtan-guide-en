@@ -39,13 +39,13 @@ He who has given me the gift of transcendental vision is my lord, birth after bi
 
 O Spiritual Master, ocean of mercy, and friend of the fallen souls, you are the teacher of everyone and the life of all people. O master! Be merciful unto me, and give me the shade of your lotus feet. May your glories now be proclaimed throughout the three worlds.
 
-        (tuyā pade loinu śaraṇa)
-        (āmi) (śaraṇilam)
+    (tuyā pade loinu śaraṇa)
+    (āmi) (śaraṇilam)
     (abhaya śrī pada padme śaraṇilam)
-        (āmay) (dayā kara he)
+    (āmay) (dayā kara he)
     (patit-pāvan śrī gurudev dayā kara he)
     (adhama patita jene dayā kara he)
-        (jay gurudev)
+    (jay gurudev)
 
 I have surrendered, I have surrendered unto your fearless lotus feet. Please give your mercy. Oh Śrī Gurudeva, saviour of the fallen, please give me your mercy. You are the saviour of the lowly fallen souls. All glories to you Śrī Gurudeva.
 
