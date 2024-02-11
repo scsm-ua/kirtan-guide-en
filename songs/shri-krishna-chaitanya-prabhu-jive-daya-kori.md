@@ -8,9 +8,9 @@
     svapārṣada svīya dhāma saha avatari
 
 Lord Śrī Krishna Chaitanya,\
-Being gracious upon the *jīva*-souls,\
+&nbsp;&nbsp;&nbsp;&nbsp;Being gracious upon the *jīva*-souls,\
 Along with Your associates and abode\
-You descended to this world
+&nbsp;&nbsp;&nbsp;&nbsp;You descended to this world
 
 #### 2
 
@@ -18,9 +18,9 @@ You descended to this world
     śikhāya saraṇāgati bhakatera prāṇa
 
 To distribute freely\
-the love divine most rare;\
+&nbsp;&nbsp;&nbsp;&nbsp;the love divine most rare;\
 By teaching exclusive surrender,\
-the life and soul of the devotee
+&nbsp;&nbsp;&nbsp;&nbsp;the life and soul of the devotee
 
 #### 3
 
@@ -28,9 +28,9 @@ the life and soul of the devotee
     ‘avaśya rakṣibe kṛṣṇa’—viśvāsa pālana
 
 Humility, self-giving,\
-Embracing His guardianship,\
+&nbsp;&nbsp;&nbsp;&nbsp;Embracing His guardianship,\
 ‘Krishna will certainly protect me’ —\
-Maintaining this faith.
+&nbsp;&nbsp;&nbsp;&nbsp;Maintaining this faith.
 
 #### 4
 
@@ -38,9 +38,9 @@ Maintaining this faith.
     bhakti-pratikūla bhāva—varjanāṅgīkāra
 
 Acceptance of all activities\
-favourable to devotion;\
+&nbsp;&nbsp;&nbsp;&nbsp;favourable to devotion;\
 Embracing rejection of\
-adversity to devotion.
+&nbsp;&nbsp;&nbsp;&nbsp;adversity to devotion.
 
 #### 5
 
@@ -49,7 +49,7 @@ adversity to devotion.
 
 Those who surrender in this sixfold way —\
 Their prayer will be heard\
-by the divine son of Nanda.
+&nbsp;&nbsp;&nbsp;&nbsp;by the divine son of Nanda.
 
 #### 6
 
@@ -57,7 +57,7 @@ by the divine son of Nanda.
     bhakativinoda poḍe dui pada dhori’
 
 Taking in his mouth a straw, falling\
-at the lotus feet of Śrī Rūpa-Sanātan;\
+&nbsp;&nbsp;&nbsp;&nbsp;at the lotus feet of Śrī Rūpa-Sanātan;\
 Śrī Bhakti Vinod clasps their holy lotus feet.
 
 #### 7
@@ -66,7 +66,7 @@ at the lotus feet of Śrī Rūpa-Sanātan;\
     śikhāye śaraṇāgati karahe uttama
 
 Weeping, weeping, I implore thee,\
-‘O I am afallen!\
+&nbsp;&nbsp;&nbsp;&nbsp;‘O I am afallen!\
 Please teach me to surrender,\
-teach me pure devotion.’
+&nbsp;&nbsp;&nbsp;&nbsp;teach me pure devotion.’
 
