@@ -70,7 +70,7 @@ Drink the pure nectar of the Holy Name of Krishna, and thus satisfy the soul of 
 #### 8
 
     jīvera kalyāṇa-sādhana-kām,
-    jagate āsi’ e madhura nām,\
+    jagate āsi’ e madhura nām,
     avidyā-timira-tapana-rūpe,
         hṛd-gagane birāje
 
