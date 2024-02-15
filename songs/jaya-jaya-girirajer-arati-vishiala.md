@@ -1,6 +1,6 @@
 # Śrī Govinda Kuṇḍa Gupta-Govardhan Ārati
 
-## by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
 #### 1
 

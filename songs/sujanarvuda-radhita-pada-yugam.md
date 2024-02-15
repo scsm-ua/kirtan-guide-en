@@ -2,7 +2,7 @@
 
 ## Prayer unto the Lotus Feet of my Lord and Master Śrīla Prabhupād
 
-## by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
 #### 1
 

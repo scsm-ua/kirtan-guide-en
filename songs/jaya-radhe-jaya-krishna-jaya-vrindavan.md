@@ -1,6 +1,6 @@
 # Śrī Vraja-dhāma-mahimāmṛta
 
-## by Śrīla Krishnadās Kavirāj Goswāmī
+### by Śrīla Krishnadās Kavirāj Goswāmī
 
 #### 1
 

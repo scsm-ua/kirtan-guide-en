@@ -2,7 +2,7 @@
 
 ## Homage unto Śrīmad Gaura Kiśora Bābājī Mahārāj
 
-## by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
 #### 1
 

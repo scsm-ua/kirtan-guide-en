@@ -1,6 +1,6 @@
 # Śrī Śrī Ṣaḍ-Gosvāmy-aṣṭakam
 
-## by Śrīla Śrīnivās Āchārya
+### by Śrīla Śrīnivās Āchārya
 
 #### 1
 

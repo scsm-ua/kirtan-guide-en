@@ -1,8 +1,8 @@
 # Śrī Śikṣāṣṭakam
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
-### Song 7a
+## Song 7a
 
     yugāyitaṁ nimeṣeṇa
     chakṣuṣā prāvṛṣāyitaṁ

@@ -1,8 +1,8 @@
 # Vaiṣṇava Ke?
 
-### “Who is a Real Vaiṣṇava?”
+## “Who is a Real Vaiṣṇava?”
 
-## by Śrīla Bhakti Siddhānta Saraswatī Ṭhākur
+### by Śrīla Bhakti Siddhānta Saraswatī Ṭhākur
 
 #### 1
 

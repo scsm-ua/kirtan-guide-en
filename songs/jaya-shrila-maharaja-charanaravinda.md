@@ -1,6 +1,6 @@
 # Āchārya-charaṇa-vandana
 
-## Composed by Śrīpād Bhakti Ānanda Sāgar Mahārāj
+### Composed by Śrīpād Bhakti Ānanda Sāgar Mahārāj
 
 #### 1
 

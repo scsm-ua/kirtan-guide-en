@@ -1,6 +1,6 @@
 # Śrī Śrī Girirāj-Govardhan Ārati
 
-## by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
 #### 1
 

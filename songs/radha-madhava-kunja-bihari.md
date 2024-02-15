@@ -1,6 +1,6 @@
 # Jaya Rādhā-Mādhava
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
     (jaya) rādhā-mādhava        (jaya) kuñja-bihārī
     (jaya) gopī-jana-vallabha    (jaya) giri-vara-dhārī

@@ -1,6 +1,6 @@
 # Śrī Guru Ārati-stuti
 
-## by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
 #### 1
 

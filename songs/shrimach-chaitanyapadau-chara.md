@@ -2,7 +2,7 @@
 
 ## Aspiring for the Dust of Śrīmad Rūpa Goswāmī’s Lotus Feet
 
-## by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
 #### 1
 

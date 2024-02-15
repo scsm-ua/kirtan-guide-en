@@ -1,6 +1,6 @@
 # Vimala hemajini
 
-## by Śrīla Vṛndāvan Dās Ṭhākur
+### by Śrīla Vṛndāvan Dās Ṭhākur
 
 #### 1
 

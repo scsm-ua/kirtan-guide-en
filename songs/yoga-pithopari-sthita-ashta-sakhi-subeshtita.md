@@ -1,8 +1,8 @@
 # Śrī Śikṣāṣṭakam
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
-### Song 8b
+## Song 8b
 
 #### 1
 

@@ -2,7 +2,7 @@
 
 ## The Holy Appearance Day of Śrī Gaurasundar
 
-## by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
 #### 1
 

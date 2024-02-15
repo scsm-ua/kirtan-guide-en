@@ -1,8 +1,8 @@
 # Śrī Śikṣāṣṭakam
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
-### Song 8a
+## Song 8a
 
     āśliṣya vā pāda-ratāṁ pinaṣṭu mām
     adarśanān marma-hatāṁ karotu vā

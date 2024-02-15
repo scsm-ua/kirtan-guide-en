@@ -1,6 +1,6 @@
 # Kali-ghora timire
 
-## by Śrīla Nayanānanda Dās
+### by Śrīla Nayanānanda Dās
 
 #### 1
 

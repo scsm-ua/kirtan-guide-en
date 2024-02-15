@@ -1,6 +1,6 @@
 # Bhajan-gīti
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
 #### 1
 

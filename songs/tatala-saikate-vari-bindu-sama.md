@@ -1,6 +1,6 @@
 # Tātala Saikate
 
-## by Śrīla Vidyāpati
+### by Śrīla Vidyāpati
 
 #### 1
 

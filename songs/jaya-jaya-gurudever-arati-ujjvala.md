@@ -1,8 +1,10 @@
 # Śrī Guru Ārati
 
-## Glorification of Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj by Śrīpād B. A. Paramahaṁsa Mahārāj
+## Glorification of Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
-## translated by Devamoyī Devī Dasī
+### by Śrīpād B. A. Paramahaṁsa Mahārāj
+
+### translated by Devamoyī Devī Dasī
 
 #### 1
 

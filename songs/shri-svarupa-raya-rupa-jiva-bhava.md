@@ -2,7 +2,7 @@
 
 ## to Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
-## Composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+### Composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
     śrī-svarūpa-rāya-rūpa jīva-bhāva-sambharaṁ
     varṇa-dharma-nirviśeṣa-sarvaloka-nistaram

@@ -1,6 +1,6 @@
 # Praṇati-Pañchakam
 
-## Composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+### Composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
 #### 1-2
 

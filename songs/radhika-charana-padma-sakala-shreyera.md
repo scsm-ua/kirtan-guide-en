@@ -1,8 +1,8 @@
 # Śrī Rādhāṣṭaka
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
-### Song 1
+## Song 1
 
 #### 1
 

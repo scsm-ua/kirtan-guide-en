@@ -1,6 +1,6 @@
 # Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
-## by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
     devaṁ divya-tanuṁ suchanda-vadanaṁ-
         bālārka-chelāñchitaṁ  

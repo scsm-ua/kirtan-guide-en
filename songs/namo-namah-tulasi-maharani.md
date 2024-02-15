@@ -1,6 +1,6 @@
 # Śrī Tulasī-parikramā-gīti
 
-## by Śrīla Chandraśekhara Kavi
+### by Śrīla Chandraśekhara Kavi
 
     namo namaḥ tulasī mahārāṇī,
     vṛnde mahārāṇī namo namaḥ

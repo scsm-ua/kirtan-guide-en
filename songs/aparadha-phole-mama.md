@@ -1,8 +1,8 @@
 # Śrī Śikṣāṣṭakam
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
-### Song 6
+## Song 6
 
     nayanaṁ galad-aśru-dhārayā
     vadanaṁ gadgada-ruddhayā girā

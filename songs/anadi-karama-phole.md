@@ -1,8 +1,8 @@
 # Śrī Śikṣāṣṭakam
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
-### Song 5
+## Song 5
 
     ayi nanda-tanuja kiṅkaraṁ
     patitaṁ māṁ viṣame bhavāmbudhau

@@ -1,10 +1,10 @@
 # Śrī Śrī Govardhana-vāsa-prārthanā-daśakam
 
-### A Dwelling Near Śrī Govardhan
+## A Dwelling Near Śrī Govardhan
 
-## Ten prayers for a dwelling near Śrī Govardhan composed by Śrīla Raghunāth Dās Goswāmī Prabhu.
+### Ten prayers for a dwelling near Śrī Govardhan composed by Śrīla Raghunāth Dās Goswāmī Prabhu.
 
-## The preferred prayer to Śrī Govardhan of Śrīla Bhakti Siddhānta Saraswatī Ṭhākur
+### The preferred prayer to Śrī Govardhan of Śrīla Bhakti Siddhānta Saraswatī Ṭhākur
 
 #### 1
 

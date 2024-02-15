@@ -1,6 +1,6 @@
 # Śrī Śrī Dāmodarāṣṭakam
 
-## by Śrī Satyavrat Muni
+### by Śrī Satyavrat Muni
 
 #### 1
 

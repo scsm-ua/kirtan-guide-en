@@ -1,6 +1,6 @@
 # Śrīman Mahāprabhur śata-nāma
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
     nadīyā-nagare nitāi neche neche gāy re
 

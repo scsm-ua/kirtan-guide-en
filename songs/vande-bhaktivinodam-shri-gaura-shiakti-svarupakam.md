@@ -1,6 +1,6 @@
 # Śrīla Bhakti Vinod Ṭhākur
 
-## by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
     vande bhaktivinodaṁ śrī-
         gaura-śakti-svarūpakam

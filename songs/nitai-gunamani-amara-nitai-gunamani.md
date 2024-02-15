@@ -1,6 +1,6 @@
 # Nitāi guṇamaṇi āmāra
 
-## by Śrīla Lochan Dās Ṭhākur
+### by Śrīla Lochan Dās Ṭhākur
 
 #### 1
 

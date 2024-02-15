@@ -2,7 +2,7 @@
 
 ## Eight Flower Offerings of Praise to Lord Gaurhari
 
-## Composed by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+### Composed by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
 #### 1
 

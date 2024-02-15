@@ -1,8 +1,8 @@
 # Śrī Śikṣāṣṭakam
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
-### Song 4
+## Song 4
 
     na dhanaṁ na janaṁ na sundarīṁ
     kavitāṁ vā jagad-īśa kāmaye

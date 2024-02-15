@@ -1,8 +1,8 @@
 # Aruṇodoya-kīrtan
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
-### Part 1
+## Part 1
 
 #### 1
 

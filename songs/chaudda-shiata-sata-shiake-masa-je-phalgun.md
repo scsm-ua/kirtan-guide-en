@@ -2,7 +2,7 @@
 
 ## Verses 89-124 from Śrī Chaitanya Charitāmṛta
 
-## by Śrīla Kṛṣṇadās Kavirāj Goswāmī
+### by Śrīla Kṛṣṇadās Kavirāj Goswāmī
 
 #### 89
 

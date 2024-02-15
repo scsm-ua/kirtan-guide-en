@@ -2,7 +2,7 @@
 
 ## Homage unto Śrīla Saraswati Ṭhākur
 
-## by Śrīla Bhakti Rakṣak Śrīdhara Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Rakṣak Śrīdhara Dev-Goswāmī Mahārāj
 
 #### 1
 

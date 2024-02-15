@@ -1,8 +1,8 @@
 # Nivedana
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
-### Part 3
+## Part 3
 
 #### 1
 

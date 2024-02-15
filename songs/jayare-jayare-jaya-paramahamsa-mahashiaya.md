@@ -1,6 +1,6 @@
 # Āchārya vandana
 
-## Composed by Gopāl Govinda Mahanta
+### Composed by Gopāl Govinda Mahanta
 
 #### 1
 

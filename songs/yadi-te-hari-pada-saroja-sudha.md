@@ -1,8 +1,8 @@
 # Śrī Godrumachandra-bhajanopadeśa
 
-## Instructions for Worshiping Lord Chaitanya,
-## the Moon of the Island of Godruma-dvīpa 
-## by Śrīla Bhakti Vinod Ṭhākur (1893)
+## Instructions for Worshiping Lord Chaitanya, the Moon of the Island of Godruma-dvīpa 
+
+### by Śrīla Bhakti Vinod Ṭhākur (1893)
 
 #### 1
 

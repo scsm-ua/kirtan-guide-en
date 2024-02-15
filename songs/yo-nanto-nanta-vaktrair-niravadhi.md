@@ -2,7 +2,7 @@
 
 ## 12 Prayers revealing the ontological position and Pastimes of Lord Nityananda.
 
-## by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
 #### 1
 

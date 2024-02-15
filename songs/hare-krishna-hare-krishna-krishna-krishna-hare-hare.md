@@ -1,6 +1,6 @@
 # Hare Krishna mahāmantra
 
-## Illumination by Śrīla Śrīdhar Mahārāj
+### Illumination by Śrīla Śrīdhar Mahārāj
 
     hare kṛṣṇa hare kṛṣṇa kṛṣṇa kṛṣṇa hare hare
     hare rāma hare rāma rāma rāma hare hare

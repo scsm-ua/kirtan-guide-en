@@ -1,6 +1,6 @@
 # Śrī Nāmāṣṭakam 7
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
 #### 1
 

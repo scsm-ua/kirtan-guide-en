@@ -1,6 +1,6 @@
 # Śrī Śrī Gaura-Nityānander Dayā
 
-## by Śrīla Lochan Dās Ṭhākur
+### by Śrīla Lochan Dās Ṭhākur
 
 #### 1
 

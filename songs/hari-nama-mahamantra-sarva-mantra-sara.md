@@ -1,10 +1,8 @@
 # Daśa-vidha Nāmāparādha
 
-## Bengali poem composed by
+### Bengali poem composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
-## Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
-
-### The Ten Offences to the Holy Name
+## The Ten Offences to the Holy Name
 
 #### 1
 

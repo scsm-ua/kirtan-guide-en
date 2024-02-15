@@ -1,6 +1,6 @@
 # Śrī Guru-paramparā
 
-## Verses 1-9 composed by Śrīla Saraswati Ṭhākur
+### Verses 1-9 composed by Śrīla Saraswati Ṭhākur
 
 #### 1
 

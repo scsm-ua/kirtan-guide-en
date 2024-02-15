@@ -1,6 +1,6 @@
 # Śrī Guru-vaiṣṇava Māhātmya-gīti
 
-## by Śrīla Narottam Dās Ṭhākur
+### by Śrīla Narottam Dās Ṭhākur
 
 #### 1
 

@@ -2,7 +2,7 @@
 
 ## to Śrīla A.C Bhaktivedānta Swāmī Mahārāj Prabhupād
 
-## Composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+### Composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
     namaḥ om viṣṇupādaya kṛṣṇa-preṣṭhāya bhūtale
     swāmī śrī bhaktivedānta prabhupādāya te namaḥ

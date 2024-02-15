@@ -1,6 +1,6 @@
 # Śrī Rādhikā-stava
 
-## by Śrīla Rūpa Goswāmī
+### by Śrīla Rūpa Goswāmī
 
 #### 1
 

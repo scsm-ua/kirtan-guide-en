@@ -1,6 +1,8 @@
 # Sakhi-vṛnde Vijñaptiḥ
 
-## Prayer to the Gopīs by Śrīla Narottam Dās Ṭhākur
+## Prayer to the Gopīs
+
+### by Śrīla Narottam Dās Ṭhākur
 
 #### 1
 

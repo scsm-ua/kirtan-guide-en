@@ -1,6 +1,6 @@
 # Śrita Kamalā
 
-## Composed by Śrīla Jayadeva Goswāmī
+### Composed by Śrīla Jayadeva Goswāmī
 
 #### 1
 

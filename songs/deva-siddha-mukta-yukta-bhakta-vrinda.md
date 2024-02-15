@@ -1,10 +1,8 @@
 # Śrī Śrī Premadhāma-deva-stotram
 
-## Composed by
+### Composed by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
-## Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
-
-## Edited by Swāmī Bhakti Pāvan Janārdan
+### Edited by Swāmī Bhakti Pāvan Janārdan
 
 #### 1
 

@@ -1,6 +1,6 @@
 # Śrīla Jagannāth Dās Bābājī Mahārāj
 
-## by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
     gaura-vrajāśritāśeṣair
         vaiṣṇavair vandya-vigraham 

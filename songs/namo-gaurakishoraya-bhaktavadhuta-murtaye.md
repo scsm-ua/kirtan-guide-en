@@ -1,6 +1,6 @@
 # Śrīla Gaura Kiśora Dās Bābājī Mahārāj
 
-## by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
     namo gaurakiśorāya
         bhaktāvadhūta mūrtaye

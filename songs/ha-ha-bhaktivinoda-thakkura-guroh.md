@@ -2,7 +2,7 @@
 
 ## Prayer in Separation of Śrīla Bhakti Vinod Ṭhākur
 
-## by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
 #### 1
 

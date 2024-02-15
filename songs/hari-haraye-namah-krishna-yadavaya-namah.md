@@ -1,6 +1,6 @@
 # Nām-saṅkīrtan
 
-## by Śrīla Narottam Dās Ṭhākur
+### by Śrīla Narottam Dās Ṭhākur
 
 #### 1
 

@@ -1,6 +1,6 @@
 # Śrī Kṛṣṇera Viṁsottara-śata-nāma
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
     nagare nagare gorā gāy
 

@@ -1,6 +1,6 @@
 # Bhagavān Śrīla Bhakti Siddhānta Saraswatī Ṭhākur
 
-## by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
     śrī-siddhānta-sarasvatīti vidito
         gauḍīya-gurv-anvaye           

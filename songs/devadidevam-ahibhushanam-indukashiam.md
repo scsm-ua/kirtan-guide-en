@@ -1,6 +1,6 @@
 # Gaṅgadhara Sadāśiva Praṇām-Mantram
 
-## Composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+### Composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
     devādidevam-ahibhūṣaṇam-indukāśaṁ
     panchānanaṁ paśupatiṁ varadaṁ prasannam

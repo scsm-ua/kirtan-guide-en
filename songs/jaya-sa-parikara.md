@@ -1,6 +1,6 @@
 # Jaya Dhvani
 
-### “Kī Jaya!” Chants
+## “Kī Jaya!” Chants
 
     jaya sa-parikara śrī-śrī-guru-gaurāṅga-rādhā- govindasundar giridhārījīu kī jaya!
     jaya oṁ viṣṇupāda paramahaṁsa- parivrājakāchārya-varya aṣṭottara-śata-śrī śrīmad bhakti sundar govinda dev-gosvāmī mahārāj kī jaya!

@@ -1,6 +1,6 @@
 # Śrī Śrī Nitāi-Chaitanya-Ārati
 
-## by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj for the Āratis in our Jagannāth Puri Branch Temple
+### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj for the Āratis in our Jagannāth Puri Branch Temple
 
 #### 1
 

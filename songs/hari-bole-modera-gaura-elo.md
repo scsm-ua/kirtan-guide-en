@@ -2,7 +2,7 @@
 
 ## Śrī Nāma (from Gītāvalī)
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
     (Refrain:) ‘hari’ bole’ modera gaura elo
 

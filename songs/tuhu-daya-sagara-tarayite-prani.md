@@ -1,8 +1,8 @@
 # Śrī Śikṣāṣṭakam
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
-### Song 2
+## Song 2
 
     nāmnām akāri bahudhā nija-sarva-śaktis
     tatrārpitā niyamitaḥ smaraṇe na kālaḥ

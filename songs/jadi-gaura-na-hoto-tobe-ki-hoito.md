@@ -1,6 +1,6 @@
 # Jadi Gaura nā ho’to
 
-## by Śrīla Vāsudeva Ghoṣa
+### by Śrīla Vāsudeva Ghoṣa
 
 #### 1
 

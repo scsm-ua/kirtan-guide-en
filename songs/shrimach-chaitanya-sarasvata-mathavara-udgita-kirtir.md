@@ -1,10 +1,10 @@
 # The Glory of the Śrī Chaitanya Sāraswat Maṭh
 
-## Composed by Śrīla B.R. Śrīdhar Dev-Goswāmī Mahārāj while
+### Composed by Śrīla B.R. Śrīdhar Dev-Goswāmī Mahārāj while
 
-## residing in a hut on the banks of the Ganges in 1941.
+### residing in a hut on the banks of the Ganges in 1941.
 
-## Rendered into English by Śrīpād B.A. Sāgar Mahārāj from the Bengali translation by Śrīla B.S. Govinda Dev-Goswāmī Mahārāj.
+### Rendered into English by Śrīpād B.A. Sāgar Mahārāj from the Bengali translation by Śrīla B.S. Govinda Dev-Goswāmī Mahārāj.
 
     śrīmach-chaitanya-sārasvata-maṭhavara-udgīta-kīrtir jaya-śrīṁ
     bibhrat sambhāti gaṅgā-taṭa-nikaṭa-navadvīpa-kolādri-rāje

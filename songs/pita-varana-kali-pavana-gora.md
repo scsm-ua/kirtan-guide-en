@@ -1,8 +1,8 @@
 # Śrī Śikṣāṣṭakam
 
-## by Śrīla Bhakti Vinod Ṭhākur
+### by Śrīla Bhakti Vinod Ṭhākur
 
-### Song 1
+## Song 1
 
     cheto-darpaṇa-mārjanaṁ
         bhava-mahā-dāvāgni-nirvāpaṇaṁ
