@@ -136,3 +136,5 @@ In the year of our Lord Gaurāṅga 450, in the month of Pauṣa, on the fourth 
 
 The entire earth and skies were filled with the cries of anguish of the people, and of the disciples devoted to the service of Śrī Gurudeva’s lotus feet. Where has that Great Master gone? Alas! today the whole universe seems empty, in the separation of Prabhupād. The servitor of Gurudeva cannot endure even a moment of his separation. Oh Dīna-nayana, wherever, wherever that great soul may be, please quickly take this servitor there to him.
 
+
+> page = 311

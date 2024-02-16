@@ -38,3 +38,5 @@ I am just like a blind man unable to see what path is auspicious or inauspicious
 
 My mind became immersed in the impermanent satisfaction of the senses, and I could not understand the real goal of life. For this reason I did not aspire to attain Your lotus feet. Narottam Dās says, “Now that I am able to see and hear the Vaiṣṇavas, I have become free from all fear.
 
+
+> page = 64

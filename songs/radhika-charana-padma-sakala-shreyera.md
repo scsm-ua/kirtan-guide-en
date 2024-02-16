@@ -1,8 +1,8 @@
 # Śrī Rādhāṣṭaka
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 1
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 #### 1
 
@@ -52,3 +52,5 @@ Without taking shelter of the lotus feet of Śrī Rādhā, one will never meet K
 
 Having given up wealth, followers, wife, children, family, and friends, material activities and intellectual knowledge, one should become absorbed in the divine sweetness of service to the lotus feet of Śrī Rādhā as one of Her maidservants in *madhura-rasa*. This is Bhakti Vinod’s solemn declaration.
 
+
+> page = 236

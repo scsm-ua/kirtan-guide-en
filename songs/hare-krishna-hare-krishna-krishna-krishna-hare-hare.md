@@ -9,3 +9,5 @@ In the Name of Rāma within the Hare Krishna mantra, the Gauḍīya Vaiṣṇava
 
 In that consideration, the Hare Krishna mantra does not mention the Rāma-*līlā* of Āyodhya at all. There is no connection with that in the highest conception of the Hare Krishna mantra.  The inner conception of the mantra is responsible for our spiritual attainment. The inner conception of the devotee will guide them to their destination.
 
+
+> page = 28

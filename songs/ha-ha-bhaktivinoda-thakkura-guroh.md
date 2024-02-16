@@ -136,3 +136,5 @@ Where am I, so lowly and fallen, and where are you, the great soul who delivers 
 
 Translator’s  Note: The preceding prayer to Śrīla Bhakti Vinod Ṭhākur (1838-1914), the pioneer of pure devotion in the recent age, was composed within the lifetime of the author’s Guru, Śrīla Bhakti Siddhānta Saraswatī Ṭhākur Goswāmī Prabhupād. Upon reading the original Sanskrit verse, Śrīla Prabhupād commented, “Now I am confident that we have one man who is qualified to uphold the standard of our Sampradāya (Divine Succession).”
 
+
+> page = 303

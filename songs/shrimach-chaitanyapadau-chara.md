@@ -134,3 +134,5 @@ By writing many, many books, he gave the world all the most cherished desires of
 
 Just prior to the withdrawal of his manifest līlā, my causelessly merciful Divine Master, Śrīla Saraswatī Ṭhākur, handed me over to the holy feet of that Divine Personality by having me sing the glorious prayer unto his lotus feet (Śrī Rūpa-mañjarī-pada). Despite my lowliness, when will—disregarding all my various qualifications and disqualifications—Śrīmad Rūpa Prabhu grace me with the dust of his holy lotus feet?
 
+
+> page = 316

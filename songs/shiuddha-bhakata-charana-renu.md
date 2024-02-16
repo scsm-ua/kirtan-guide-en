@@ -74,3 +74,5 @@ The sight of the holy Tulasī tree soothes my soul, for I know she gives pleasur
 
 Whatever Bhakti Vinod obtains that is conducive for the service of Śrī Krishna, he accepts every day with the greatest of joy.
 
+
+> page = 288

@@ -160,3 +160,5 @@ Day  and  night  Lord  Chaitanya  was intoxicated with the intense desire to tas
 
 O Nityānanda Prabhu, emperor amidst the personal associates of Śrīman Mahāprabhu! Kindly grant this fallen soul deep and resolute faith in that pure and divine figure of Śrī Gaurāṅga. Lord Gaurāṅga’s personality exclusively embodies the sweet nectar relished deep within the devotional mellows of Śrī Śrī Rādhā-Krishna’s Pastimes. But if Your lotus feet are over-looked, than all so-called devotional orations and prayers meant for the highest worship become false, like a dream. I worship You, that great personality Nityānanda-chandra, who openly bestows shelter to the most fallen souls, freely granting the association of Śrī Gaurāṅgadev.
 
+
+> page = 322

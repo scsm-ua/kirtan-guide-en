@@ -1,4 +1,5 @@
-# Śrī Śrī Gaurasundarer Avirbhāva Vasare
+# Śrī Śrī Gaurasundarer
+# Avirbhāva Vasare
 
 ## The Holy Appearance Day of Śrī Gaurasundar
 
@@ -103,3 +104,5 @@ Everyone who engages in this nāma saṅkīrtan of Mahāprabhu, comes to enquire
 
 Thus I pray to the dark cowherd Śyāmasundar who has taken the mood and effulgence of Śrī Rādhā. That Lord, Śrī Chaitanya appeared with the chanting of the pure divine name; everyone chant the glories of that Golden Lord, Śrī Chaitanya Mahāprabhu.
 
+
+> page = 147

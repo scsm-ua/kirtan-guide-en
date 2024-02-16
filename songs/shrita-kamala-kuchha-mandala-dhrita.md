@@ -65,3 +65,5 @@ O Lord, I offer my humble obeisances at Your lotus feet. Please bless me by Your
 
 The poet Śrī Jayadeva offers this song of devotion and shining good fortune to Thee. All glories! All glories to Lord Śrī Hari!
 
+
+> page = 252

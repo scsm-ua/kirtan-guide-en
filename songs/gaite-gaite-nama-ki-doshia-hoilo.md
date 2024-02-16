@@ -4,6 +4,8 @@
 
 ## Song 7a
 
+The seventh verse of the Śrī Śikṣāṣṭakam is as follows:
+
     yugāyitaṁ nimeṣeṇa
     chakṣuṣā prāvṛṣāyitaṁ
     śūnyāyitaṁ jagat sarvaṁ
@@ -71,3 +73,5 @@ Oh residents of Vṛndāvan; save my life and show me Rādhānāth, the Lord of 
 
 I am unable to further tolerate this separation from my Lord Krishna and am ready to give up my life in two days or four.
 
+
+> page = 228

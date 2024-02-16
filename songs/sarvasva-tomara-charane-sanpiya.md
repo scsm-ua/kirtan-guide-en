@@ -47,3 +47,5 @@ While sitting up or lying down, I will constantly meditate on Your lotus feet. W
 
 I will never even think about arranging for my own nourishment, and will remain absorbed in ever cherishing love for my master. Bhakti Vinod now accepts You as his only maintainer.
 
+
+> page = 191

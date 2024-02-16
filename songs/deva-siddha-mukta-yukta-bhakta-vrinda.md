@@ -1,4 +1,5 @@
-# Śrī Śrī Premadhāma-deva-stotram
+# Śrī Śrī
+# Premadhāma-deva-stotram
 
 ### Composed by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
@@ -721,3 +722,5 @@ Whoever faithfully recites this composition of seventy prayers known as the Prem
 
 These prayers have been composed in the fifth century after the appearance of Śrī Chaitanya Mahāprabhu by a certain *sannyās* disciple of Śrīla Saraswatī Ṭhākur named Śrīdhar [Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj].
 
+
+> page = 90

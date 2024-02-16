@@ -37,3 +37,5 @@ The ocean of mercy had formerly been tightly sealed, but Lord Nitāi cut a chann
 
 Lochan Dās says, “Whoever has not worshipped this Lord Nitāi, or accepted the great gift offered by Him, that person knowingly commits suicide.”
 
+
+> page = 130

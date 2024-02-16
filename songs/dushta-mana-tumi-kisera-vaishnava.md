@@ -174,3 +174,5 @@ The most valuable treasures amongst the Lord’s preachers are the eternal perso
 
 This humble servant of Rādhā and Her beloved Krishna always hopes for kīrtan, and he begs all to loudly sing the Names of Lord Hari. The transcendental power of congregational chanting automatically awakens remembrance of the Lord and His divine Pastimes in relation to one’s own eternal spiritual form. Only at that time does it become possible to go off to a solitary place and engage in the confidential worship of Their Lordships.
 
+
+> page = 172

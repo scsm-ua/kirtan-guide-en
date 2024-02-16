@@ -1,6 +1,8 @@
 # Śrī Śrī Nitāi-Chaitanya-Ārati
 
-### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj for the Āratis in our Jagannāth Puri Branch Temple
+### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+
+### for the Āratis in our Jagannāth Puri Branch Temple
 
 #### 1
 
@@ -87,3 +89,5 @@ Sārvabhauma Bhaṭṭāchārya, Gopīnāth Āchārya and the followers in the *
 
 Inconceivably Śrī Śrī Nitāi-Chaitanya have manifested and through the mercy of Śrī Gurudeva this fallen soul sees Their ārati and joins within the saṅkīrtan.
 
+
+> page = 40

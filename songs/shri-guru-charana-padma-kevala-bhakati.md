@@ -1,4 +1,5 @@
-# Śrī Guru-vaiṣṇava Māhātmya-gīti
+# Śrī Guru-vaiṣṇava
+# Māhātmya-gīti
 
 ### by Śrīla Narottam Dās Ṭhākur
 
@@ -49,4 +50,7 @@ O Spiritual Master, ocean of mercy, and friend of the fallen souls, you are the 
 
 I have surrendered, I have surrendered unto your fearless lotus feet. Please give your mercy. Oh Śrī Gurudeva, saviour of the fallen, please give me your mercy. You are the saviour of the lowly fallen souls. All glories to you Śrī Gurudeva.
 
+
 > verse parentheses = non bold
+
+> page = 80

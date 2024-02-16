@@ -1,8 +1,10 @@
 # Daśa-vidha Nāmāparādha
 
-### Bengali poem composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
-
 ## The Ten Offences to the Holy Name
+
+### Bengali poem composed by
+
+### Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
 #### 1
 
@@ -128,3 +130,5 @@ Those pure souls who chant the Name in Holy Congregation —\
 The miracle of love for Krishna they will surely savour,\
 The Name Divine Himself will shine within their hearts forever.
 
+
+> page = 29

@@ -4,6 +4,8 @@
 
 ## Song 3
 
+The third verse of the Śrī Śikṣāṣṭakam is as follows:
+
     tṛṇād api sunīchena
     taror iva sahiṣṇunā
     amāninā mānadena
@@ -67,3 +69,5 @@ Humility, mercy, consideration of others, and giving up position are the four qu
 
 Bhakti Vinod, crying at the Lord’s holy feet says, “O my Lord, when will You bestow upon me the qualifications for Krishna-*kīrtan*?”
 
+
+> page = 220

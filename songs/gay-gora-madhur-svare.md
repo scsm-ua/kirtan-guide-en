@@ -31,3 +31,5 @@ Bound in *māyā’s* net you’ve slaved and toiled in vain. But now that you h
 
 This life must surely end soon, and you have not worshiped Hṛṣīkeśa, the master of the senses. Bhakti Vinod advises: at least once, taste the *nāma-rasa*, the nectar of the Holy Name.
 
+
+> page = 138

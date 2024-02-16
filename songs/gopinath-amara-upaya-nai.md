@@ -68,3 +68,5 @@ Oh Gopīnāth, You are Hṛṣīkeśa, the Lord of the senses. Seeing me so help
 
 Oh Gopīnāth, the noose of materialism has become fixed around my neck. Taking up the sword of Your mercy and cutting this bondage, make this Bhakti Vinod Your humble servant.
 
+
+> page = 204

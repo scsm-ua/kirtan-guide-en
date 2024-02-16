@@ -4,6 +4,8 @@
 
 ## Song 8a
 
+The eighth verse of the Śrī Śikṣāṣṭakam is as follows:
+
     āśliṣya vā pāda-ratāṁ pinaṣṭu mām
     adarśanān marma-hatāṁ karotu vā
     yathā tathā vā vidadhātu lampaṭo
@@ -60,3 +62,5 @@ But even though He pains my soul in this way, He is still the Lord of my life. W
 
 In this way, Bhakti Vinod, in both union and separation, knows that Krishna is the only Lord of his soul. Krishna’s happiness is my happiness. He is the Lord of my life; there is no other Lord for me than Him.
 
+
+> page = 232

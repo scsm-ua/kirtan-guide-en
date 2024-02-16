@@ -16,3 +16,5 @@
 
 Applying the soothing salve of sambandha-jñāna, a proper acquaintance with the environment, my spiritual master has opened my inner eye and thereby rescued me from the darkness of ignorance, fulfilling my life’s aspirations. I offer my respects unto Śrī Gurudeva.
 
+
+> page = 9

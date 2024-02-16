@@ -47,3 +47,5 @@ You shower your mercy upon anyone who offers you incense, lamp, foodstuffs, wors
 
 Lord Shiva, Śukadeva Goswāmī, Nārada Muni, all the demigods headed by Lord Brahmā, the mystics and great munis are all circumambulating you. O Tulasī Mahārāṇī, thus Chandraśekhara sings of your glories. Please bestow upon him the gift of devotion.
 
+
+> page = 78

@@ -1,4 +1,5 @@
-# Śrī Śrīmad Gaura-Kiśora-namaskāra Daśakam
+# Śrī Śrīmad Gaura-Kiśora-
+# namaskāra Daśakam
 
 ## Homage unto Śrīmad Gaura Kiśora Bābājī Mahārāj
 
@@ -94,3 +95,5 @@ Forsaking the company of the residents of Kuliyā town to accept the service of 
 
 Although I remain deep in the mud of offences, I (a fallen soul) am begging you for your causeless mercy. Please be gracious and deliver this soul bereft. Oh Gaura Kiśora, again and yet again do I make my obeisance unto you.
 
+
+> page = 308

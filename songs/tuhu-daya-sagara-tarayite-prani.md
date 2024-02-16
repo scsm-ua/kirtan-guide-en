@@ -4,6 +4,8 @@
 
 ## Song 2
 
+The second verse of the Śrī Śikṣāṣṭakam is as follows:
+
     nāmnām akāri bahudhā nija-sarva-śaktis
     tatrārpitā niyamitaḥ smaraṇe na kālaḥ
     etādṛśī tava kṛpā bhagavan mamāpi
@@ -46,3 +48,5 @@ This is Your mercy, O Lord. You are supremely kind. But, O Lord, I am most wicke
 
 I have never known any attraction for the Holy Names. And so, the heart of Bhakti Vinod is filled with sadness.
 
+
+> page = 218

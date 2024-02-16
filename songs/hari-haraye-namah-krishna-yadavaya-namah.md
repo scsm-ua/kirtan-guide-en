@@ -72,3 +72,5 @@ Absorbing your mind in meditation upon the divine feet of the Spiritual Master a
 
 Desiring the lotus feet of Śrī Guru and the Vaiṣṇavas, Narottam Dās sings the *saṅkīrtan* of the Holy Name.
 
+
+> page = 66

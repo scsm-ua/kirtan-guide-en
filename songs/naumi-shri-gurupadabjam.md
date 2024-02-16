@@ -63,3 +63,5 @@ In Śrī Nabadwīp Dhām, which is nondifferent from the holy abode of Śrī V�
 
 One who with pure faith happily sings this Praṇatidaśakam every day, gains the qualification to serve the Supreme Lord on the path of spontaneous love (Rāgamarga), by the grace of the associate-servitors of that Śrīla Gurudeva.
 
+
+> page = 333

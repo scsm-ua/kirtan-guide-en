@@ -72,3 +72,5 @@ When the four-headed Brahmā abducts me along with Your cowherd boyfriends and c
 
 Bhakti Vinod is now the property of Gokul, Your holy abode. Oh Keśava! Kindly protect him with gentle loving care.
 
+
+> page = 196

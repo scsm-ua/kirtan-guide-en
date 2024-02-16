@@ -1,4 +1,5 @@
-# Śrī Govinda Kuṇḍa Gupta-Govardhan Ārati
+# Śrī Govinda Kuṇḍa
+# Gupta-Govardhan Ārati
 
 ### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
@@ -72,3 +73,5 @@ By Your inconceivable glories and magnanimity, You have manifested Kuliyā (wher
 
 You are eternally manifested both as the worshipable Lord and as the servitor Lord. This fallen servant sees Your ārati with great joy.
 
+
+> page = 36

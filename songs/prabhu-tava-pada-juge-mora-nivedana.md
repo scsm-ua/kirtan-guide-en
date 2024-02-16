@@ -4,6 +4,8 @@
 
 ## Song 4
 
+The fourth verse of the Śrī Śikṣāṣṭakam is as follows:
+
     na dhanaṁ na janaṁ na sundarīṁ
     kavitāṁ vā jagad-īśa kāmaye
     mama janmani janmanīśvare
@@ -60,3 +62,5 @@ In danger or success, good fortune or disaster, let me remain equipoised. And le
 
 Whether I live as bird or beast, in heaven or in hell, let the humble Bhakti Vinod always cherish devotion to You in his heart of hearts.
 
+
+> page = 222

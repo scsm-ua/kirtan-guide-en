@@ -38,3 +38,5 @@ What assurance of real happiness is there in all of one’s wealth, youthfulness
 
 It is the desire and great longing of Govinda dās to engage himself in the nine processes of bhakti, namely hearing the glories of Lord Hari and chanting those glories, constantly remembering Him and offering prayers to Him, serving the Lord’s lotus feet, serving the Supreme Lord as a servant, worshipping Him with flowers and incense and so forth, serving Him as a friend, and completely offering the Lord one’s very self.
 
+
+> page = 169

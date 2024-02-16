@@ -46,3 +46,5 @@ Innumerable Brahmās have died one after another, whereas You are without beginn
 
 Vidyāpati confesses that now, at the end of his life, he is fearful of death. O Lord! There is no shelter other than You. You will always remain celebrated as being the Lord of both that which has beginning and the beginningless. Now the responsibility for my deliverance from the material world is entirely Yours.
 
+
+> page = 193

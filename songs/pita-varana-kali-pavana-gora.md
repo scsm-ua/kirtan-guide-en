@@ -4,6 +4,8 @@
 
 ## Song 1
 
+The first verse of the Śrī Śikṣāṣṭakam is as follows:
+
     cheto-darpaṇa-mārjanaṁ
         bhava-mahā-dāvāgni-nirvāpaṇaṁ
     śreyaḥ-kairava-chandrikā-
@@ -75,3 +77,5 @@ Lord Gaurāṅga, whose complexion is golden and who is the deliverer of the fal
 
 “All glories to the chanting of the Holy Name of Krishna! It bathes the soul of Bhakti Vinod. This chanting is a storehouse of love of Godhead.”
 
+
+> page = 216

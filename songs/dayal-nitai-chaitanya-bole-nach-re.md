@@ -31,3 +31,5 @@ When you become offenceless, you will obtain love of God; but in these Names of 
 When there is attachment to the Holy Name of Krishna, then, very easily, the life of a living being becomes successful. Without attachment to Krishna, life is simply false. If the mercy of Lord Gaura is there, then at the end of life you will obtain the beautiful vision of Rādhā and Śyāma in Vṛndāvan.
 
 > verse parentheses = non bold
+
+> page = 133

@@ -39,3 +39,5 @@ He can put to an end our wandering in this material world; he can protect us fro
 
 He is a death-sentence to arrogant, haughty demons; he is the saviour of everyone in all the three worlds for he distributes the teachings of Śrī Krishna; he is pre-eminent amongst the learned, the most supreme merciful shelter, I adore that Śrīdhara-deva until my death.
 
+
+> page = 342

@@ -1,4 +1,5 @@
-# Śrī Śrī Girirāj-Govardhan Ārati
+# Śrī Śrī Girirāj-
+# Govardhan Ārati
 
 ### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
@@ -79,3 +80,5 @@ The beauty of the ārati of Śrī Girirāj Jīu which is rare and precious is be
 
 Śrī Śrī Girirāj Jīu is eternally manifested as both the worshipable Lord and the servitor Lord. This fallen servant sees the *ārati* of Śrī Girirāj Jīu with great ecstasy.
 
+
+> page = 38

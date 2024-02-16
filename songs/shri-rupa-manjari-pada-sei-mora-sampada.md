@@ -60,3 +60,5 @@ There are two classes of lotus: the white lotus came from the sun and the red fr
 
 This was composed by Narottam Ṭhākur in praise of Śrīla Rūpa Goswāmī. In this way he has given us light of the higher quarter of bhajan life. This sampradāya is named as the Rūpānuga-sampradāya, and our Guru-paramparā and all these things are adjusted according to that. He wrote many songs and they are of very substantive firmament, very ecstatic, and of deep faith.
 
+
+> page = 206

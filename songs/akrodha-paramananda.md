@@ -37,3 +37,5 @@ Saying this Nityānanda falls to the ground, appearing like a golden mountain ro
 
 Where attachment for such an incarnation has not arisen, Lochan Dās says that such a sinful person comes and goes in the cycle of repeated birth and death.
 
+
+> page = 131

@@ -60,3 +60,5 @@ Umā, Ramā, Satyā, Śachī, Chandrāvālī, and Rukminī are all personal expa
 
 Bhakti Vinod, whose only wealth is the service of Śrī Rādhā, humbly prays to be a serving maid at Her lotus feet.
 
+
+> page = 238

@@ -4,6 +4,8 @@
 
 ## Song 6
 
+The sixth verse of the Śrī Śikṣāṣṭakam is as follows:
+
     nayanaṁ galad-aśru-dhārayā
     vadanaṁ gadgada-ruddhayā girā
     pulakair nichitaṁ vapuḥ kadā
@@ -62,3 +64,5 @@ When will my body turn colours and become pale out of ecstasy? When will I lose 
 
 Bhakti Vinod, who is devoid of good intelligence cries, “When will I meet with such a day?”
 
+
+> page = 226
