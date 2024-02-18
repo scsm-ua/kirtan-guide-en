@@ -4,7 +4,7 @@
 - [Vandanā](songs/vande-ham-shri-guroh-shri-yuta-pada-kamalam.md)
 - [Praṇām Mantra to Śrīla Bhakti Bimal Avadhūt Mahārāj](songs/vande-vaikuntha-vritti-stham.md)
 - [Praṇām Mantra to Śrīla Bhakti Sudhīr Goswāmī Mahārāj](songs/goswaminam-sudhirakhyam.md)
-- [Praṇām Mantra to Srila Bhakti Nirmal Acharya Maharaj](songs/pujya-sri-guru-varga-vandita-mahabhavanvitayah.md)
+- [Praṇām Mantra to Srila Bhakti Nirmal Acharya Maharaj](songs/pujya-sri-guru-varga-vandita.md)
 - [Praṇām Mantra to Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj](songs/gurvabhishta-supurakam-guru-ganair.md)
 - [Praṇām Mantra to Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj](songs/devam-divya-tanum-suchanda-vadanam-balarka-chelanchitam.md)
 - [Praṇām Mantra to Bhagavān Śrīla Bhakti Siddhānta Saraswatī Ṭhākur](songs/shri-siddhanta-sarasvatiti-vidito.md)
