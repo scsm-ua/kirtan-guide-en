@@ -107,6 +107,7 @@
 - [prabhu tava pada-juge mora nivedana](songs/prabhu-tava-pada-juge-mora-nivedana.md)
 - [pralaya-payodhi-jale dhṛtavān asi vedaṁ](songs/pralaya-payodhi-jale-dhritavan-asi-vedam.md)
 - [pīta-varaṇa kali-pāvana gorā](songs/pita-varana-kali-pavana-gora.md)
+- [pūjya śrī-guru-varga-vandita](songs/pujya-sri-guru-varga-vandita.md)
 - [rādhe jaya jaya mādhava-dayite](songs/radhe-jaya-jaya-madhava-dayite.md)
 - [rādhikā-charaṇa-padma, sakala śreyera](songs/radhika-charana-padma-sakala-shreyera.md)
 - [rādhā-bhajane jodi moti nāhi bhelā](songs/radha-bhajane-jodi-moti-nahi-bhela.md)
