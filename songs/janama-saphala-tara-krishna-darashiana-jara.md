@@ -37,7 +37,7 @@ By such a beautiful form He is maddening the entire universe. His complexion is 
 
 Beholding Him standing at the base of a kadamba tree, I can see that Krishna’s beauty is conquering the lustre of an entire mine of sapphires. Seeing this, my mind has become so restless that my feet will move no longer, and I’ve completely forgotten about my family and home life in this world.
 
-#### 4
+#### 5
 
     (sakhī he)    sudhāmoya se rūpa-mādhurī
         dekhile nayana,    hoya achetana,
@@ -45,7 +45,7 @@ Beholding Him standing at the base of a kadamba tree, I can see that Krishna’s
 
 O sakhī! Oh dear girlfriend! Seeing that sweet form abounding in nectar, I have fallen unconscious as a fountain of tears gushing with ecstatic love cascades from my eyes.
 
-#### 5
+#### 6
 
     kibā chūḍā śire    kibā vaṁśī kore
         kibā se tribhaṅga-ṭhāma
@@ -54,7 +54,7 @@ O sakhī! Oh dear girlfriend! Seeing that sweet form abounding in nectar, I have
 
 What a wonderful crown upon His head! What a wonderful flute He is holding in His hand! What a wonderfully beautiful form as He stands in His three-fold bending posture! The nectar of His lotus feet is overflowing with the tinkling sound coming from the clusters of ankle bells which are decorating them.
 
-#### 6
+#### 7
 
     sadā āśā kori    bhṛṅga-rūpa dhori
         charaṇa kamale sthāna
