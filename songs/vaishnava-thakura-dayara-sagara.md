@@ -4,9 +4,9 @@
 
 #### 1
 
-    (ohe) vaiṣṇava ṭhākura, dayāra sāgara,
+    (ohe) vaiṣṇava ṭhākura,    dayāra sāgara,
         e dāse karuṇā kori
-    diyā pada-chāyā, śodho he āmāre,
+    diyā pada-chāyā,    śodho he āmāre,
         tomāra charaṇa dhori
 
 Oh my Lord, Oh Vaiṣṇava, Ocean of grace, Kindly be gracious to this servitor; Bestow the shade of your holy feet, purify me, I clasp your holy lotus feet.
