@@ -22,7 +22,7 @@ O Mind! What can you do about my great misfortune? Mahāmāyā bewilders the who
 #### 3
 
     nija-rūpevitāri’    tri-guṇa-jāle phā̐da rachi’
-        ta̐̐hi māhe gaṇikā pratiṣṭhā—
+        ta̐hi māhe gaṇikā pratiṣṭhā—
     kanaka varāṅganā    dāniyā āmiṣa sama
         sa̐pitechhe kāla-kare dhṛṣṭā
 
