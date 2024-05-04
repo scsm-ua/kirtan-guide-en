@@ -4,9 +4,9 @@
 
 ### by Śrīla Bhakti Vinod Ṭhākur
 
-    (Refrain:) ‘hari’ bole’ modera gaura elo
+    ‘hari’ bole’ modera gaura elo
 
-Our Lord Gaura came chanting “Hari! Hari!”
+(Refrain:) Our Lord Gaura came chanting “Hari! Hari!”
 
 #### 1
 
