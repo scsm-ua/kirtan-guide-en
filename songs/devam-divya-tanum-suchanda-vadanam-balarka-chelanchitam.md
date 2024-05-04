@@ -21,7 +21,7 @@ Radiant in Pastimes of loving devotion,\
 the abode of pure ecstasy, bestower of good fortune;\
 foremost true follower of Śrīla Bhakti Siddhānta,\
 foremost great general of the whole renounced order,\
-my lord and my master, my only shelter,\≠≠
+my lord and my master, my only shelter,\
 I worship his feet, Śrīla Śrīdhar-Deva.”
 
 
