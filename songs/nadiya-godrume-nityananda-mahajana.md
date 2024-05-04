@@ -20,7 +20,7 @@ O people of faith! O people of faith! By the order of Lord Gaurāṅga, O brothe
 #### 3
 
     aparādha-śūnya ho’ye loha kṛṣṇa-nāma
-    zkṛṣṇa mātā, kṛṣṇa pita, kṛṣṇa dhana-prāṇa
+    kṛṣṇa mātā, kṛṣṇa pita, kṛṣṇa dhana-prāṇa
 
 Being careful to remain free of offenses, just take the holy name of Lord Krishna. Krishna is your mother, Krishna is your father, and Krishna is the treasure of your life.
 
