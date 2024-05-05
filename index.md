@@ -138,7 +138,7 @@
 - [āmāra jīvana, sadā pāpe rata](songs/amara-jivana-sada-pape-rata.md)
 - [ātma-nivedana, tuyā pade kori](songs/atma-nivedana-tuya-pade-kori.md)
 - [ātma-samarpaṇe gelā abhimāna](songs/atma-samarpane-gela-abhimana.md)
-- [śorīra avidyā-jāl, joḍendriya tāhe kāl](songs/shorira-avidya-jal-jodendriya-tahe-kal.md)
+- [bhāi-re! śorīra avidyā-jāl, joḍendriya tāhe kāl](songs/bhai-re-shorira-avidya-jal-jodendriya-tahe-kal.md)
 - [śrita-kamalā-kuchha-maṇḍala dhṛta](songs/shrita-kamala-kuchha-mandala-dhrita.md)
 - [śrī guru charaṇa-padma, kevala-bhakati](songs/shri-guru-charana-padma-kevala-bhakati.md)
 - [śrī hari-vāsare hari-kīrtana-vidhāna](songs/shri-hari-vasare-hari-kirtana-vidhana.md)

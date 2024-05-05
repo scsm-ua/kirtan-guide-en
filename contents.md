@@ -49,7 +49,7 @@
 
 - [Śrī Bhog Ārati Gīti](songs/bhaja-bhakata-vatsala-shri-gaurahari.md)
 - [Mahāprasāda](songs/mahaprasade-govinde-nama-brahmani.md)
-- [Śrī Prasāda-sevāya Gīti](songs/shorira-avidya-jal-jodendriya-tahe-kal.md)
+- [Śrī Prasāda-sevāya Gīti](songs/bhai-re-shorira-avidya-jal-jodendriya-tahe-kal.md)
 
 ### Evening Songs
 
