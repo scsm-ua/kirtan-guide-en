@@ -23,7 +23,7 @@ I worship the lotus feet of the Divine Master, whose heart is maddened in nectar
 #### 3
 
     śrī-vigrahārādhana-nitya-nānā-
-    śrṅgāra-tan-mandira-mārjanādau
+    śṛṅgāra-tan-mandira-mārjanādau
     yuktasya bhaktāṁś cha niyuñjato ’pi
     vande guroḥ śrī-charaṇāravindam
 
