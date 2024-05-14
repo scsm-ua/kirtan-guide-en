@@ -49,4 +49,7 @@ This is Your mercy, O Lord. You are supremely kind. But, O Lord, I am most wicke
 I have never known any attraction for the Holy Names. And so, the heart of Bhakti Vinod is filled with sadness.
 
 
+[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/tuhu-doya-sagara-tarayite-prani)
+
+
 > page = 218

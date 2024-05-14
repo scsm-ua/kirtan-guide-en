@@ -75,4 +75,7 @@ O Lord Dāmodar, just as the two sons of Kuvera — Maṇigrīva and Nalakīśva
 O Lord Dāmodar, I first of all offer my obeisances to the brilliantly effulgent rope which binds Your belly. I then offer my obeisances to Your belly, which is the abode of the entire universe. I humbly bow down to Your most beloved Śrīmatī Rādhārāṇī, and I offer all obeisances to You, the Supreme Lord, who displays unlimited Pastimes.
 
 
+[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-damodarastakam-happy-motif)
+
+
 > page = 272

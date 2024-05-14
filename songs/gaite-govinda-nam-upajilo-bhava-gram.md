@@ -23,4 +23,7 @@ And while I sang the name of Govinda a host of ecstasies arose within me. I saw 
 On seeing this, my mind was stunned. I lost my senses. Unaware of time, I fainted. When I awoke after immeasurable time, the treasured couple had gone. My vision of Vraja had broken.
 
 
+[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/gaite-govinda-nam)
+
+
 > page = 230

@@ -57,4 +57,7 @@ In supreme happiness the thousand-faced Ananta Śeṣa sings and calls out, “H
 The Holy Name of Śrī Krishna has fulfilled all my desires by thus manifesting on everyone’s tongue. Bhakti Vinod, the humble servant of the Lord, therefore prays at the feet of Śrī Rūpa Goswāmī that the chanting of Harinām may always continue in this way.
 
 
+[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-namastakam-song-8-narada-muni-bajaya-vina)
+
+
 > page = 160

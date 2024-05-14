@@ -84,4 +84,7 @@ I worship the lotus feet of the Divine Master, ever singing his glories and medi
 One who, during the Brāhma-muhūrta (nintysix minutes before sunrise) with meticulous regularity wholeheartedly sings these eight prayers to the Divine Master, attains, upon leaving the body in his spiritual perfection, the qualification to engage in the direct service of the Lord of Vṛndāvan.
 
 
+[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-sri-sri-gurvvashtakam-samsara-davanala-lidha-loka)
+
+
 > page = 56

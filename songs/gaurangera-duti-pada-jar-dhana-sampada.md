@@ -39,4 +39,7 @@ By considering the associates of Lord Gaurāṅga to be eternally perfect, one c
 Whoever dives into the waves of the nectarean ocean of love of Lord Gaurāṅga becomes an intimate associate of Śrī Śrī Rādhā-Mādhava. Whether one lives in a house or in the forest, if they chant ‘Oh Lord Gaurāṅga!’ Narottam Dās begs to attain their association.
 
 
+[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-savarana-sri-gaura-mahima-gaurangera-duti-pada)
+
+
 > page = 134

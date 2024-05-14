@@ -15,4 +15,7 @@ I offer my obeisances to Lord Narasiṁha, who gives joy to Prahlād Mahārāj a
 Lord Nṛsiṁha is here and also there. Wherever I go Lord Nṛsiṁha is there. He is in the heart and is outside as well. I surrender to Lord Nṛsiṁha, the origin of all things and the supreme refuge.
 
 
+[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-sri-nrsimha-pranam-namas-te-narisimhaya)
+
+
 > page = 271

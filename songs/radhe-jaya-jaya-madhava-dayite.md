@@ -31,4 +31,7 @@ O new moon who has arisen from the ocean of King Vṛṣabhānu! O friend of Lal
 O You who are filled with compassion! O You whose divine characteristics are described by the great sages Sanaka and Sanātan! O Rādhā, please be merciful to me!
 
 
+[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-sri-radhika-stava)
+
+
 > page = 241

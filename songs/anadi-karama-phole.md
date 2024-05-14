@@ -50,4 +50,7 @@ The two highway robbers named intellectual knowledge and fruitive activity have 
 I am Your eternal servant, Oh merciful Lord. But, having forgotten this since time immemorial, I have become bound up in this network of illusion. Take this fallen servant of Yours, give him a place in the dust of Your lotus feet; give your shelter to this humble Bhakti Vinod.
 
 
+[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/anadi-karama-phole)
+
+
 > page = 224

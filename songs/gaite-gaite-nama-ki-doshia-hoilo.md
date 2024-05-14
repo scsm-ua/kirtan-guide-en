@@ -74,4 +74,7 @@ Oh residents of Vṛndāvan; save my life and show me Rādhānāth, the Lord of 
 I am unable to further tolerate this separation from my Lord Krishna and am ready to give up my life in two days or four.
 
 
+[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/gaite-gaite-nama-ki-dasa-hoilo)
+
+
 > page = 228
