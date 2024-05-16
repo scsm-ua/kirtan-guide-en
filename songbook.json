@@ -3,6 +3,8 @@
     "subtitle": "Chiang Mai English Edition, 2022",
     "slug": "en",
     "i18n": {
+        "Books": "Books",
+        "Search": "Search",
         "Share song": "Share song",
         "Share": "Share",
         "Copy page address": "Copy page address",
