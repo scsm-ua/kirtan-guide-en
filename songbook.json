@@ -10,6 +10,9 @@
         "Copy page address": "Copy page address",
         "Contents": "Contents",
         "Index": "Index",
-        "Vaishnava Songbook": "Vaishnava Songbook"
+        "Vaishnava Songbook": "Vaishnava Songbook",
+        "bookListPage": {
+            "songCount": "songs"
+        }
     }
 }
