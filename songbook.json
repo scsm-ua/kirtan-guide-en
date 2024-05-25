@@ -21,7 +21,11 @@
             "SEARCH": "Search"
         },
         "SONG_PAGE": {
-            "SHARE_SONG": "Share song"
+            "CLOSE": "Close",
+            "NEXT_SONG": "Next song",
+            "PREVIOUS_SONG": "Previous song",
+            "SHARE_SONG": "Share song",
+            "SHOW_TRANSLATION": "Show translation"
         }
     }
 }
