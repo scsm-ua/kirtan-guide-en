@@ -11,8 +11,17 @@
         "Contents": "Contents",
         "Index": "Index",
         "Vaishnava Songbook": "Vaishnava Songbook",
-        "bookListPage": {
-            "songCount": "songs"
+        "BOOK_LIST_PAGE": {
+            "SONG_COUNT": "songs"
+        },
+        "FOOTER": {
+            "BOOKS": "Books",
+            "CONTENTS": "Contents",
+            "INDEX": "Index",
+            "SEARCH": "Search"
+        },
+        "SONG_PAGE": {
+            "SHARE_SONG": "Share song"
         }
     }
 }
