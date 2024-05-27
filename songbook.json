@@ -22,8 +22,12 @@
         },
         "SONG_PAGE": {
             "CLOSE": "Close",
+            "COPY": "Copy",
+            "COPY_LINK": "Copy page link",
             "NEXT_SONG": "Next song",
+            "OTHER_TRANSLATIONS": "See other translations",
             "PREVIOUS_SONG": "Previous song",
+            "SHARE": "Share",
             "SHARE_SONG": "Share song",
             "SHOW_TRANSLATION": "Show translation"
         }
