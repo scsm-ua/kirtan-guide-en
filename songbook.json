@@ -1,35 +1,5 @@
 {
     "title": "Kirtan Guide",
     "subtitle": "Chiang Mai English Edition, 2022",
-    "slug": "en",
-    "i18n": {
-        "Books": "Books",
-        "Search": "Search",
-        "Share song": "Share song",
-        "Share": "Share",
-        "Copy page address": "Copy page address",
-        "Contents": "Contents",
-        "Index": "Index",
-        "Vaishnava Songbook": "Vaishnava Songbook",
-        "BOOK_LIST_PAGE": {
-            "SONG_COUNT": "songs"
-        },
-        "FOOTER": {
-            "BOOKS": "Books",
-            "CONTENTS": "Contents",
-            "INDEX": "Index",
-            "SEARCH": "Search"
-        },
-        "SONG_PAGE": {
-            "CLOSE": "Close",
-            "COPY": "Copy",
-            "COPY_LINK": "Copy page link",
-            "NEXT_SONG": "Next song",
-            "OTHER_TRANSLATIONS": "See other translations",
-            "PREVIOUS_SONG": "Previous song",
-            "SHARE": "Share",
-            "SHARE_SONG": "Share song",
-            "SHOW_TRANSLATION": "Show translation"
-        }
-    }
+    "slug": "en"
 }
