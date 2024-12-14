@@ -30,7 +30,7 @@
     hā hā rūpa kara dayā,    deho more pada-chāyā,
         narottama loilo śaraṇa
 
-Commentary by Śrīla B.R. Śrīdhar Dev-Goswāmī: 
+## Commentary by Śrīla B.R. Śrīdhar Dev-Goswāmī: 
 
 #### 1
 
