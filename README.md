@@ -1,4 +1,4 @@
-# KIRTAN GUIDE
+# Kirtan Guide
 
 Chiang Mai English Edition
 
