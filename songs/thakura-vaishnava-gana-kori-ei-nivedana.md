@@ -22,7 +22,7 @@ My destiny is very powerful. I am not able to hear the knowledge of spiritual li
 
 #### 3
 
-    kāma krodha lobha moha mada abhimāna saha
+    kāma krodha lobha moha    mada abhimāna saha
         āpana āpana sthāne ṭāne
     aichāna āmāra mana    phire jena andha jana
         supatha vipatha nāhi jāne
