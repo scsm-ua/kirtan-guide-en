@@ -98,4 +98,4 @@ Arriving in the sacred place of pilgrimage, Śrī Nīlāchala, the valiant king 
 The tall divine figure of Śrī Gaurāṅgadev enhances the joy of the universal gods as He is the charming embodiment of pure love. The radiant aura emanating from His beautiful form insults millions of golden lotuses while winning the respect of that effulgent personality Chandradeva. Śrī Gaurāṅga is the background stage of all spiritual Pastimes as exhibited in the everfresh dynamic moods of sattvika-bhāva as seen in His joyful dancing when congregationally chanting Lord Krishna’s Holy Names. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
 
 
-> page = 90
+> page = 95

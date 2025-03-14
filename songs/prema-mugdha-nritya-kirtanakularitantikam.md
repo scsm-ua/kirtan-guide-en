@@ -126,4 +126,4 @@ Lord Gaurasundar explained this famous verse of the Śrīmad-Bhāgavatam sixty-o
 “Even the liberated souls fully satisfied in the self are irresistibly attracted by the superexcellent qualities of Krishna and surrender to Him with unalloyed devotion.” The Lord separately combined each of the eleven words found in that verse and established that each one is an enormous storehouse of unlimited wealth supporting the conclusion of pure devotion. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
 
 
-> page = 90
+> page = 111

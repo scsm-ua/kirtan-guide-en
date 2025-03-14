@@ -100,4 +100,4 @@ After searching for the Lord throughout the night, the exhausted devotees finall
 As the anxious devotees began to loudly chant the Holy Names of Krishna, this divine vibration entered the Lord’s ears and touched the depths of His heart. Immediately the Lord’s dislocated joints reunited, and He displayed the beautiful figure which their eyes were accustomed to relishing. In a semiconscious state, the Lord began to describe with deep feelings of separation what He had seen while absorbed in divine trance. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
 
 
-> page = 90
+> page = 117

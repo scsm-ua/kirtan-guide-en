@@ -105,4 +105,4 @@ While strolling through the forest groves of Vṛndāvan, the Lord was joyfully 
 Hopelessly overwhelmed by a surge of pure love, Lord Gaurasundar madly danced and chanted the Holy Names of Krishna. A profuse current of flowing tears streamed from His eyes, passing over the radiant lustre of His giant golden form, over His brilliant garments that resembled the sun, and over the ground in all four directions. The Lord’s joyful Pastimes were ecstatically enhanced by such gestures as His loudly mispronouncing the Holy Name of Krishna in a delirious state, or His roaring with laughter due to being ecstatically absorbed in deep emotion. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
 
 
-> page = 90
+> page = 106
