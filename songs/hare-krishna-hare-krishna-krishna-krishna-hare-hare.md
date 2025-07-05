@@ -1,3 +1,7 @@
+---
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+---
+
 # Hare Krishna mahāmantra
 
 ### Illumination by Śrīla Śrīdhar Mahārāj

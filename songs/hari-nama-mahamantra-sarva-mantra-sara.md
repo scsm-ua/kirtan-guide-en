@@ -1,3 +1,7 @@
+---
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+---
+
 # Daśa-vidha Nāmāparādha
 
 ## The Ten Offences to the Holy Name
