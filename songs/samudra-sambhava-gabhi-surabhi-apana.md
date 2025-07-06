@@ -18,7 +18,7 @@ author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
     govinda kuṇḍe viśade yaḥ snāti kṛṣṇa-mānasaḥ
     prāpnoti kṛṣṇa-sārūpyaṁ maithilendra na saṁśayaḥ
 
-## Bengali verse illumination\
+## Bengali verse illumination
 
 ## by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
