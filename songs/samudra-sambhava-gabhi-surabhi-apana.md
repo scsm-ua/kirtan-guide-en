@@ -1,3 +1,8 @@
+---
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+---
+
+
 # Śrī Govinda Kuṇḍa Māhātmya
 
 ## The Glories of Śrī Govinda Kuṇḍa
@@ -13,8 +18,9 @@
     govinda kuṇḍe viśade yaḥ snāti kṛṣṇa-mānasaḥ
     prāpnoti kṛṣṇa-sārūpyaṁ maithilendra na saṁśayaḥ
 
-Bengali verse illumination\
-by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+## Bengali verse illumination\
+
+## by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
 #### 1
 
