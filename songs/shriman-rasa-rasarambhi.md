@@ -1,3 +1,7 @@
+---
+author: Śrīla Rūpa Goswāmī
+---
+
 # Śrī-Śrī-Guru-Gaurāṅga-Rādhā-Gopīnāthjīu 
 
 ## Hāpāniyā, Śrī Chaitanya Sāraswat Ashram

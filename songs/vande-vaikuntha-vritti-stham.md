@@ -1,3 +1,7 @@
+---
+author: Śrīla Bhakti Sudhīr Goswāmī Mahārāj
+---
+
 # Śrīla Bhakti Bimal Avadhūt Mahārāj
 
     vande vaikuṇṭha-vṛtti-stham

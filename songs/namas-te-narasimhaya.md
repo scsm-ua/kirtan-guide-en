@@ -1,3 +1,7 @@
+---
+author: Śrīla Jayadeva Goswāmī
+---
+
 # Śrī Nṛsiṁha Praṇām
 
     namas te narasiṁhāya

@@ -1,3 +1,7 @@
+---
+author: Śrīla Rūpa Goswāmī
+---
+
 # Śrī-Śrī-Guru-Gaurāṅga-Rādhā-Madana-Mohanjīu
 
 ## Kolkata, Sree Chaitanya Sāraswata Krishnanushilana Sangha

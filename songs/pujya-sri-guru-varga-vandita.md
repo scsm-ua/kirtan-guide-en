@@ -1,3 +1,7 @@
+---
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+---
+
 # Srila Bhakti Nirmal Acharya Maharaj
 
     pūjya śrī-guru-varga-vandita

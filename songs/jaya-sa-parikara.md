@@ -1,3 +1,7 @@
+---
+no-author: 1
+---
+
 # Jaya Dhvani
 
 ## “Kī Jaya!” Chants
