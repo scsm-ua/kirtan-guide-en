@@ -1,3 +1,7 @@
+---
+author: Śrīla Bhakti Vinod Ṭhākur
+---
+
 # Śrī Godrumachandra-bhajanopadeśa
 
 ## Instructions for Worshiping Lord Chaitanya, the Moon of the Island of Godruma-dvīpa 

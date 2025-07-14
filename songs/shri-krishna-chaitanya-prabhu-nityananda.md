@@ -1,3 +1,7 @@
+---
+no-author: 1
+---
+
 # Pañcha-tattva mantra
 
     śrī-kṛṣṇa-chaitanya prabhu nityānanda

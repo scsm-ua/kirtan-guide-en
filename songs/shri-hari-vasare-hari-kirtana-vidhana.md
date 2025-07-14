@@ -1,6 +1,6 @@
 # Śrī Hari-vāsara-gīti
 
-### by Śrīla Vṛndāvan dās Ṭhākur
+### by Śrīla Vṛndāvan Dās Ṭhākur
 
 #### 1
 

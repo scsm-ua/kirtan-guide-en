@@ -1,3 +1,7 @@
+---
+no-author: 1
+---
+
 # Mahāprasāda
 
     mahāprasāde govinde nāma brahmaṇi vaiṣṇave

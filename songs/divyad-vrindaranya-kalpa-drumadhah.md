@@ -1,3 +1,7 @@
+---
+author: Śrīla Rūpa Goswāmī
+---
+
 # Śrī-Śrī-Guru-Gaurāṅga-Gāndharvā-Govindasundarjīu
 
 ## Nabadwīp, Śrī Chaitanya Sāraswat Maṭh

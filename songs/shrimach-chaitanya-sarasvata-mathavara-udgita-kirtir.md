@@ -1,8 +1,10 @@
+---
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+---
+
 # The Glory of the Śrī Chaitanya Sāraswat Maṭh
 
-### Composed by Śrīla B.R. Śrīdhar Dev-Goswāmī Mahārāj while
-
-### residing in a hut on the banks of the Ganges in 1941.
+### Composed by Śrīla B.R. Śrīdhar Dev-Goswāmī Mahārāj while residing in a hut on the banks of the Ganges in 1941.
 
 ### Rendered into English by Śrīpād B.A. Sāgar Mahārāj from the Bengali translation by Śrīla B.S. Govinda Dev-Goswāmī Mahārāj.
 

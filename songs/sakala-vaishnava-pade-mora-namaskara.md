@@ -1,3 +1,7 @@
+---
+author: Śrīla Bhakti Vinod Ṭhākur
+---
+
 # Prayers to the Vaiṣṇavas
 
     sakala vaiṣṇava-pade mora namaskāra
