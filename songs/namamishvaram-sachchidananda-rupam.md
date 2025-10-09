@@ -27,7 +27,7 @@ To the Supreme Lord, whose form is the embodiment of eternal existence, knowledg
     tadīyeṣita-jñeṣu bhaktair jitatvaṁ
     punaḥ prematas taṁ śatāvṛtti vande
 
-By such childhood Pastimes as this He is drow27n3ing the inhabitants of Gokul in pools of ecstasy, and is revealing to those devotees who are absorbed in knowledge of His supreme majesty and opulence that He is only conquered by devotees whose pure love is imbued with intimacy and is free from all conceptions of awe and reverence. With great love I again offer my obeisances to Lord Dāmodar hundreds and hundreds of times.
+By such childhood Pastimes as this He is drowning the inhabitants of Gokul in pools of ecstasy, and is revealing to those devotees who are absorbed in knowledge of His supreme majesty and opulence that He is only conquered by devotees whose pure love is imbued with intimacy and is free from all conceptions of awe and reverence. With great love I again offer my obeisances to Lord Dāmodar hundreds and hundreds of times.
 
 #### 4
 
