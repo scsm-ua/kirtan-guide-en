@@ -12,9 +12,7 @@ no-author: 1
 
     jaya oṁ viṣṇupāda paramahaṁsa-parivrājakāchārya-varya aṣṭottara-śata-śrī śrīmad bhakti rakṣak śrīdhar dev-gosvāmī mahārāj kī jaya!
 
-    jaya oṁ viṣṇupāda paramahaṁsa-parivrājakācārya-varya aṣṭottara-śata-śrī
-
-    śrīmad bhakti siddhānta sarasvatī ṭhākur kī jaya!
+    jaya oṁ viṣṇupāda paramahaṁsa-parivrājakācārya-varya aṣṭottara-śata-śrī śrīmad bhakti siddhānta sarasvatī ṭhākur kī jaya!
 
     jaya oṁ viṣṇupāda śrīla gaura-kiśora dās bābājī mahārāj kī jaya!
 
@@ -42,9 +40,7 @@ no-author: 1
 
     saparṣada śrīman mahāprabhu kī jaya!
 
-    jaya śrī-śrī rādhā-kṛṣṇa gopa-gopī-gopīnāth
-
-    śyāma-kuṇḍa rādhā-kuṇḍa giri-govardhan kī jaya!
+    jaya śrī-śrī rādhā-kṛṣṇa gopa-gopī-gopīnāth śyāma-kuṇḍa rādhā-kuṇḍa giri-govardhan kī jaya!
 
     śrī lakṣmī-varāhadeva kī jaya! (In our Nabadwip Maṭh)
 
