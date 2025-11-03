@@ -1,17 +1,17 @@
-# Śrīla Bhakti Rañjan Madhusūdan Mahārāj
+# Śrīla Bhakti Rañjan Madhusūdana Mahārāj
     
-    āchārya-varyyaṁ gaura-dhāma-niṣṭhaṁ
-    śrī-bhakti-rakṣak-śrīdhareva preṣṭhaṁ
-    govindānuraktaṁ śrīmadhusūdanaṁ
-    namāmi nityam śrī-bhakti-rañjanam
+    āchārya-varyaṃ gaura-dhāma-niṣṭhaṃ
+    śrī-bhakti-rakṣaka-śrīdhara-deva-preṣṭham
+    govindānuraktaṃ śrī-madhusūdanaṃ
+    namāmi nityaṃ śrī-bhakti-rañjanam
 
-With firm faith in Śrī Gaura Dhāma (the abode of Śrī Gaura) he is very dear to Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj, and is the best of preceptors. He is full of intense loving attachment to the service of Govinda (Lord Śrī Govinda and Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj... Govinda, Govinda!) I eternally and repeatedly bow down to Śrīla Bhakti Rañjan Madhusūdan Mahārāj.
+With firm faith in Śrī Gaura Dhāma (the abode of Śrī Gaura) he is very dear to Śrīla Bhakti Rakṣaka Śrīdhara Deva Goswāmī Mahārāj, and is the best of preceptors. He is full of intense loving attachment to the service of Govinda (Lord Śrī Govinda and Śrīla Bhakti Sundar Govinda Deva Goswāmī Mahārāj … Govinda, Govinda!). I eternally and repeatedly bow down to Śrīla Bhakti Rañjan Madhusūdana Mahārāj.
 
 **Explanation:**
 
-*ācārya-varyyam* — the best of preceptors;\
-*gaura-dhāma-niṣṭhaṁ* — one who has firm faith in the abode of Srī Gaura;\
-*śrī-bhakti-rakṣak-śrīdhareva* — Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī;\
-*preṣṭhaṁ* — dear one;\
-*govindānuraktaṁ* — one who has anuraga, intense loving attachment, for Śrīla Bhakti Sundar Govinda or Lord Śrī Govinda;\
-*namami nityam śrī madhusūdanaṁ—śrī bhakti rañjanam* — eternally bow down to Śrī Bhakti Rañjanam Madhusūdanam Mahārāj. 
+**āchārya-varyaṃ**–the best of preceptors;\
+**gaura-dhāma-niṣṭhaṃ**–one who has firm faith in the abode of Śrī Gaura;\
+**śrī-bhakti-rakṣaka-śrīdhara-deva**–Śrīla Bhakti Rakṣaka Śrīdhara Deva Goswāmī’s;\
+**preṣṭham**–dear one;\
+**govindānuraktaṃ**–one who has anurāga, intense loving attachment, for Śrīla Bhakti Sundar Govinda Deva Goswāmī’s or Lord Śrī Govinda;\
+**namāmi nityaṃ śrī-madhusūdanaṃ śrī-bhakti-rañjanam**–I eternally bow down to Śrī Bhakti Rañjan Madhusūdana Mahārāj.
