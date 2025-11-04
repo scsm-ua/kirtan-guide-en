@@ -13,5 +13,5 @@ With firm faith in Śrī Gaura Dhāma (the abode of Śrī Gaura) he is very dear
 **gaura-dhāma-niṣṭhaṃ**–one who has firm faith in the abode of Śrī Gaura;\
 **śrī-bhakti-rakṣaka-śrīdhara-deva**–Śrīla Bhakti Rakṣaka Śrīdhara Deva Goswāmī’s;\
 **preṣṭham**–dear one;\
-**govindānuraktaṃ**–one who has anurāga, intense loving attachment, for Śrīla Bhakti Sundar Govinda Deva Goswāmī’s or Lord Śrī Govinda;\
+**govindānuraktaṃ**–one who has *anurāga*, intense loving attachment, for Śrīla Bhakti Sundar Govinda Deva Goswāmī’s or Lord Śrī Govinda;\
 **namāmi nityaṃ śrī-madhusūdanaṃ śrī-bhakti-rañjanam**–I eternally bow down to Śrī Bhakti Rañjan Madhusūdana Mahārāj.
