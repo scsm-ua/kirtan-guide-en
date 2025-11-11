@@ -20,5 +20,7 @@ author: Śrīla Kṛṣṇadās Kavirāj Goswāmī
 
 Applying the soothing salve of sambandha-jñāna, a proper acquaintance with the environment, my spiritual master has opened my inner eye and thereby rescued me from the darkness of ignorance, fulfilling my life’s aspirations. I offer my respects unto Śrī Gurudeva.
 
+[Bhudev Prabhu](https://soundcloud.com/huron/07-am031-vande-ham)
+
 
 > page = 9
