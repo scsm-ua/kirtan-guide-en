@@ -115,5 +115,7 @@ Although I am insincere and deceitful, I have been given to you by Your dear Śr
 
 One who carefully studies these ten nectarean verses describing the king of mountains, Śrī Govardhan, will soon attain a dwelling at this joyous place and quickly attain the precious jewel of personal service to the Divine Couple.
 
+[Kesavananda Dasa](https://soundcloud.com/kesavananda-dasa/a-dwelling-near-sri-govardhan)
+
 
 > page = 32

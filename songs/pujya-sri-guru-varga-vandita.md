@@ -2,7 +2,7 @@
 author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
-# Srila Bhakti Nirmal Acharya Maharaj
+# Śrila Bhakti Nirmal Āchārya Mahārāj
 
     pūjya śrī-guru-varga-vandita
         mahā-bhāvānvitāyāḥ sadā
