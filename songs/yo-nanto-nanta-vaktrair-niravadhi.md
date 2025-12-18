@@ -28,7 +28,7 @@ Lord Nityānanda’s representation as Ananta Śeṣa posseses unlimited mouths 
     śrī nityānanda-chandraṁ bhaja bhaja satataṁ
         gaura-kṛṣṇa-pradaṁ tam
 
-Lord  Nityānanda’s  partial  manifestation  as KśīrodakaśāyīViṣṇufunctionsasthepreservationprinciple of the entire universal creation, and is localized within every soul (Paramātma). Another eminent expansion of Lord Nityānanda is Garbhodaśāyī Viṣṇu, that allimposing figure whose thousands of heads are eulogized in the Vedic orations. Lord Nityānanda’s presence is further extended in His expansion as Kāraṇodaśāyī Viṣṇu, the supplying principle encompassing unlimited universes. Lord Nityānanda is the master of the Lord of material nature, Kāraṇodaśāyī Viṣṇu, who is the shelter of all living entities. Let us eternally worship that great personality Śrī Nityānanda-chandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
+Lord Nityānanda’s partial manifestation as Kśīrodakaśāyī Viṣṇu functions as thep reservation principle of the entire universal creation, and is localized within every soul (Paramātma). Another eminent expansion of Lord Nityānanda is Garbhodaśāyī Viṣṇu, that allimposing figure whose thousands of heads are eulogized in the Vedic orations. Lord Nityānanda’s presence is further extended in His expansion as Kāraṇodaśāyī Viṣṇu, the supplying principle encompassing unlimited universes. Lord Nityānanda is the master of the Lord of material nature, Kāraṇodaśāyī Viṣṇu, who is the shelter of all living entities. Let us eternally worship that great personality Śrī Nityānanda-chandra, who freely grants the association of Śrī Gaurāṅgadev, who is none other than Lord Krishna.
 
 #### 3
 
