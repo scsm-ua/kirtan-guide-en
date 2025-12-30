@@ -16,6 +16,6 @@
       "prepare": "npm run build"
     },
     "dependencies": {
-      "songbook-md-json-parser": "git+https://github.com/scsm-ua/songbook-md-json-parser.git"
+      "songbook-md-json-parser": "git+https://github.com/scsm-ua/songbook-md-json-parser.git#v1.0.0"
     }
   }
