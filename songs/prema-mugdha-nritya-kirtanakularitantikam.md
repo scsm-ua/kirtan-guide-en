@@ -1,3 +1,8 @@
+---
+page: 111
+first_line: prema-mugdha-nṛtya-kīrtanākulāriṭāntikaṁ
+---
+
 # Śrī Śrī
 # Premadhāma-deva-stotram
 
@@ -11,7 +16,7 @@
 
     prema-mugdha-nṛtya-kīrtanākulāriṭāntikaṁ
     snāna-dhanya-vāri-dhānya-bhūmi-kuṇḍa-deśakam
-    prema-kuṇḍa-rādhikākhya-śāstra-vandanādaraṁ 
+    prema-kuṇḍa-rādhikākhya-śāstra-vandanādaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 Surcharged with the confusing dictations of pure love of God, Lord Gaurasundar, dancing in ecstasy, anxiously approached the sacred place of Rādhā Kuṇḍa, which was unmanifest at that time. The Lord hastily took bath in that flooded paddy field, sanctified the water, and revealed it to be Śrī Rādhā Kuṇḍa. In deep humility, the Lord began to carefully recite verses from the Scriptures depicting Śrī Rādhā Kuṇḍa as the divine embodiment of pure love.
@@ -27,7 +32,7 @@ Surcharged with the confusing dictations of pure love of God, Lord Gaurasundar, 
 
     tintiḍī-talastha-yāmunormi-bhāvanāplutaṁ
     nirjanaika-rādhikātma-bhāva-vaibhavāvṛtam
-    śyāma-rādhikāpta-gaura-tattva-bhittikākaraṁ 
+    śyāma-rādhikāpta-gaura-tattva-bhittikākaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 As the Lord was visiting various places in Vṛndāvan where Lord Krishna performed His Pastimes, He visited that famous tamarind tree that existed during the Dvāpara era. Sitting beneath the tamarind tree, the Lord’s memory of His confidential water-sporting Pastimes with the cowherd maidens was aroused when He saw the dancing gestures of the Yamunā’s waves. The Lord’s entire being was captured by tasting the sweetness of Śrī Rādhā within the depths of His heart. Identifying with that selfsame sweetness and emotion that possessed His entire self, the Lord’s entire existence was stolen away. This place is indicated to be the place of origin of Gaura-*tattva*, for it was here that Lord Śyāmasundar became greatly absorbed in the divine mood of Śrīmatī Rādhārāṇī. Śrī Chaitanya Mahāprabhu, who is Himself the origin of all, eternally resides in this place. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
@@ -36,7 +41,7 @@ As the Lord was visiting various places in Vṛndāvan where Lord Krishna perfor
 
     śārikā-śukokti-kautukāḍhya-lāsya-lāpitaṁ
     rādhikā-vyatīta-kāmadeva-kāma-mohitam
-    prema-vaśya-kṛṣṇa-bhāva-bhakta-hṛch-chamatkaraṁ 
+    prema-vaśya-kṛṣṇa-bhāva-bhakta-hṛch-chamatkaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 Lord Gaurāṅga mentioned a witty conversation that was carried on between a parrot and his mate. In their talk, Lord Krishna, the transcendental Cupid, is described to be illusioned due to His deep feelings of separation from Śrī Rādhā.
@@ -52,7 +57,7 @@ The female parrot said, “When Lord Krishna is with Rādhārāṇī, He is the 
 
     śrī-prayāga-dhāma-rūpa-rāga-bhakti-sañcharaṁ
     śrī-sanātanādi-kāśi-bhakti-śikṣaṇādaram
-    vaiṣṇavānurodha-bheda-nirviśeṣa-pañjaraṁ 
+    vaiṣṇavānurodha-bheda-nirviśeṣa-pañjaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 It was in the sacred place of Prayāga, in the bathing area known as Daśāśvamedha Ghāṭa, that Lord Gaurāṅga taught Śrīla Rūpa Goswāmī that the ultimate objective of one’s devotional practices is to relish the sweet mellows found in Śrī Vṛndāvan, and the Lord instructed him to widely distribute that sweetness. Later in Kāśī, the Lord elaborately described to Śrīla Sanātan Goswāmī many topics of pure dedication, such as knowledge of proper acquaintance with the environment, the means of applying that knowledge, and the ultimate goal of obtaining pure love of Godhead. Also, at the special request of a Maharastrian *brāhmaṇ* and Tapana Miśra and other devotees, the Lord destroyed the ignorant conception of the *māyāvādī* renunciates in Vārāṇasī. Lord Gaurāṅgadev personally met the impersonalists there in a public assembly, and pointed out that their mode of self-adoration was ultimately based on enviousness and narrow-mindedness. In this way the Lord established that factual independence was exhibited by those worshipping the Supreme Personality of Godhead. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
@@ -70,7 +75,7 @@ While en route to Jagannāth Purī from Vṛndāvan, the Lord met and instructed
 
     brahma-sūtra-bhāṣya-kṛṣṇa-nāradopadeśakaṁ
     śloka-turya-bhāṣaṇānta-kṛṣṇa-samprakāśakam
-    śabda-vartanānta-hetu-nāma-jīva-nistaraṁ 
+    śabda-vartanānta-hetu-nāma-jīva-nistaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 When Lord Chaitanyadeva was in Kāśī, He taught a grand assembly of the impersonalist renunciates that the Śrīmad-Bhāgavatam, as taught in the bona fide disciplic succession from Lord Krishna to Nārada and handed down by Śrīla Vyāsadeva, is the factual commentary on the conclusions of the Vedānta-sūtras. Śrī Gaurāṅga also explained the four fundamental verses of the Śrīmad-Bhāgavatam and revealed Lord Krishna as the ultimate reality beyond all duality and the original principle of the entire universal arrangement. By the Vedic aphorism “*anāvṛttiḥ śabdāt anāvṛttiḥ śabdāt*,” Lord Chaitanya established that conscious sound in its highest expression is Lord Krishna’s Holy Name, and that it bestows the utmost benefit by releasing the soul from its conditioned state of existence. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
@@ -79,7 +84,7 @@ When Lord Chaitanyadeva was in Kāśī, He taught a grand assembly of the impers
 
     ātma-rāma-vāchanādi-nirviśeṣa-khaṇḍanaṁ
     śrauta-vākya-sārthakaika-chidvilāsa-maṇḍanam
-    divya-kṛṣṇa-vigrahādi-gauṇa-buddhi-dhikkaraṁ 
+    divya-kṛṣṇa-vigrahādi-gauṇa-buddhi-dhikkaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 By explaining the famous ātmarāma verse of the Śrīmad-Bhāgavatam sixty-one times, Lord Gaurāṅga sliced to pieces the impersonalist doctrine propagated by Śaṅkarāchārya. The Lord also recited many references from the Upaniṣads, such as *apāṇi-pādo javano grahītā paśyaty acakṣuḥ sa śṛnoty akarṇaḥ*, whereby He revealed the charming sweet nature of the Absolute Truth’s spiritual Pastimes. Lord Chaitanya fully censured the hateful conception of the impersonalists that Lord Krishna’s transcendental form, name, qualities, Pastimes, and Deity manifestation are simply an imaginary transformation of the illusory energy *māyā*. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema.*
@@ -104,7 +109,7 @@ When Lord Gaurāṅga referred to the verse *brahmeti paramātmeti bhagavān iti
 
     rādhikā-vinoda-mātra-tattva-lakṣaṇānvayaṁ
     sādhu-saṅga-kṛṣṇa-nāma-sādhanaika-niśchayam
-    prema-sevanaika-mātra-sādhya-kṛṣṇa-tatparaṁ 
+    prema-sevanaika-mātra-sādhya-kṛṣṇa-tatparaṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 In this manner Lord Gaurāṅgadev taught that all scriptural conclusions, as perfectly passed down by the various spiritual preceptors through the medium of sound, culminate in the embodiment of Śrī Rādhāvinoda, the all-encompassing basis of proper acquaintance with the environment. The means by which one may reach Lord Krishna is by chanting His Holy Names in the association of pure devotees, while the ultimate goal in pure love is service to Lord Krishna, who is so dear to the cowherd maidens of Vṛndāvan. Lord Gaurāṅgadev taught these essential scriptural conclusions in the assembly of scholarly persons. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
@@ -125,5 +130,3 @@ Lord Gaurasundar explained this famous verse of the Śrīmad-Bhāgavatam sixty-o
 
 “Even the liberated souls fully satisfied in the self are irresistibly attracted by the superexcellent qualities of Krishna and surrender to Him with unalloyed devotion.” The Lord separately combined each of the eleven words found in that verse and established that each one is an enormous storehouse of unlimited wealth supporting the conclusion of pure devotion. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
 
-
-> page = 111

@@ -1,8 +1,13 @@
+---
+page: 224
+first_line: anādi karama-phole
+---
+
 # Śrī Śikṣāṣṭakam
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 5
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 The fifth verse of the Śrī Śikṣāṣṭakam is as follows:
 
@@ -52,5 +57,3 @@ I am Your eternal servant, Oh merciful Lord. But, having forgotten this since ti
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/anadi-karama-phole)
 
-
-> page = 224

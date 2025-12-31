@@ -1,3 +1,9 @@
+---
+verse parentheses: non bold
+page: 127
+first_line: nadīyā-godrume nityānanda mahājana
+---
+
 # Ājñā-Ṭahal
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -31,6 +37,3 @@ Being careful to remain free of offenses, just take the holy name of Lord Krishn
 
 Giving up all sinful activities, carry on your worldly duties only in relation to Lord Krishna. The showing of compassion to other souls by loudly chanting the holy name of Krishna is the essence of all forms of religion.
 
-> verse parentheses = non bold
-
-> page = 127

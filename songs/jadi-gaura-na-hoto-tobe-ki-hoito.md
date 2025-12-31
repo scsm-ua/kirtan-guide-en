@@ -1,3 +1,8 @@
+---
+page: 141
+first_line: jadi gaura nā ho’to, tobe ki hoito
+---
+
 # Jadi Gaura nā ho’to
 
 ### by Śrīla Vāsudeva Ghoṣa
@@ -38,5 +43,3 @@ Sing again and again the wonderful qualities of Lord Gaurāṅga while keeping y
 
 Even though I am chanting ‘Gaurāṅga!’ somehow I have not melted in ecstatic love. So how have I maintained the burden of this body? How is it that the creator has given this Vāsu a stone in place of his heart?
 
-
-> page = 141

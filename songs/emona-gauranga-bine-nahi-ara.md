@@ -1,3 +1,8 @@
+---
+page: 142
+first_line: emona gaurāṅga bine nāhi āra
+---
+
 # Emona Gaurāṅga bine nāhi āra
 
 ### by Śrīla Premānanda Dās
@@ -55,5 +60,3 @@ Loudly they called out the Holy Names playing the *mṛdaṅga* and *karatāls*.
 
 An auspicious tumult arose. The three worlds were filled with bliss. Premānanda says: “Alas! Attachment for Lord Gaurāṅga did not arise in me.”
 
-
-> page = 142

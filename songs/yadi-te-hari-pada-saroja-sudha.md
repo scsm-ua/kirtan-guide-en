@@ -1,10 +1,12 @@
 ---
+page: 150
 author: Śrīla Bhakti Vinod Ṭhākur
+first_line: yadi te hari-pāda-saroja-sudhā
 ---
 
 # Śrī Godrumachandra-bhajanopadeśa
 
-## Instructions for Worshiping Lord Chaitanya, the Moon of the Island of Godruma-dvīpa 
+## Instructions for Worshiping Lord Chaitanya, the Moon of the Island of Godruma-dvīpa
 
 ### by Śrīla Bhakti Vinod Ṭhākur (1893)
 
@@ -19,7 +21,7 @@ If your heart wishes to be always absorbed in drinking the ambrosial mellows of 
 
 #### 2
 
-    dhana-yauvana-jīvana-rājya-sukhaṁ 
+    dhana-yauvana-jīvana-rājya-sukhaṁ
     a hi nityam anukṣaṇa-nāśa-param
     tyaja grāmya-kathā-sakalaṁ viphalaṁ
     bhaja godruma-kānana-kuñja-vidhum
@@ -188,6 +190,6 @@ Please go to the forest of Lord Gaura, divided into nine islands. Please read an
 
 Just remember the artistically playful pastimes of Gaura and Gadādhara. Just become a loyal follower of Gaura and Gadādhara’s camp. Just listen to the captivating stories of Gaura and Gadādhara—and just worship the beautiful Moon of Godruma’s forest bowers.
 
+
 [Shrila Bhakti Ranjan Madhusudan Maharaj](https://soundcloud.com/bharatimaharaj/madhusudan-maharaj-jadite)
 
-> page = 150

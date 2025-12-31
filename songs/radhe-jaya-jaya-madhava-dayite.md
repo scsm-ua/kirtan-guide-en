@@ -1,3 +1,8 @@
+---
+page: 241
+first_line: rādhe jaya jaya mādhava-dayite
+---
+
 # Śrī Rādhikā-stava
 
 ### by Śrīla Rūpa Goswāmī
@@ -33,5 +38,3 @@ O You who are filled with compassion! O You whose divine characteristics are des
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-sri-radhika-stava)
 
-
-> page = 241

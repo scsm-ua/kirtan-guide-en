@@ -1,3 +1,8 @@
+---
+page: 106
+first_line: prema-mugdha-rudra-rāja-śaurya-vīrya-vikramaṁ
+---
+
 # Śrī Śrī
 # Premadhāma-deva-stotram
 
@@ -11,7 +16,7 @@
 
     prema-mugdha-rudra-rāja-śaurya-vīrya-vikramaṁ
     prārthitāṅghri-varjitānya-sarva-dharma-saṅgamam
-    luṇṭhita-pratāpa-śīrṣa-pāda-dhūli-dhūsaraṁ 
+    luṇṭhita-pratāpa-śīrṣa-pāda-dhūli-dhūsaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 When northern India was under Muslim rule, that great kingly emperor of the independent state of Orissa, Pratāparudra, was completely wonderstruck and overtaken by the magnanimity, prowess, and activities that Lord Chaitanya exhibited in pure love of Godhead. The great King Pratāparudra rejected all his earlier ties with traditional religiosity and his valiant kingly nature, and he threw himself before the lotus feet of Śrī Chaitanyadeva in full surrender. The merciful Lord then bathed the surrendered emperor’s head with the sacred dust of His tender lotus feet. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
@@ -29,7 +34,7 @@ The Supreme Lord was adored by the famous scholarly class of men in South India.
 
     gaura-garvi-sarva-gauḍa-gauravārtha-sajjitaṁ
     śāstra-śastra-dakṣa-duṣṭa-nāstikādi-lajjitam
-    muhyamāna-mātṛkādi-deha-jīva-sañcharaṁ 
+    muhyamāna-mātṛkādi-deha-jīva-sañcharaṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 During His travels, Lord Gaurāṅgadev’s fame flooded the length and breadth of Bengal. Therefore, when He returned to Nabadwīp five years after accepting *sannyās*, all of Bengal, which was proud of Lord Gaurāṅga, became enthusiastic to glorify His extraordinary personality. Even the proud atheistic class of scholars were embarrassed about their vile natures when they observed how the ordinary people in all walks of life had such resolute faith in the Lord. When Mother Śachī and the Lord’s other family members, who were lifeless due to separation from their Lord, had another glimpse of Śrī Chaitanyadeva, their life’s substance was rejuvenated. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
@@ -38,7 +43,7 @@ During His travels, Lord Gaurāṅgadev’s fame flooded the length and breadth 
 
     nyāsa-pañcha-varṣa-pūrṇa-janma-bhūmi-darśanaṁ
     koṭi-koṭi-loka-lubdha-mugdha-dṛṣṭi-karṣaṇam
-    koṭi-kaṇṭha-kṛṣṇa-nāma-ghoṣa-bheditāmbaraṁ 
+    koṭi-kaṇṭha-kṛṣṇa-nāma-ghoṣa-bheditāmbaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 Returning to His birthplace after five long years of *sannyās*, the Supreme Lord was met by millions, young and old alike. Everyone’s eyes were overwhelmed with eagerness to see the Lord, who was attracting their innermost heart of hearts. The Lord’s ecstatic presence excited the multitudes to continuously resound the Names of Lord Hari, and they created an uproar that reverberated in every direction, beyond the limits of the sky. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
@@ -56,7 +61,7 @@ Returning to His birthplace after five long years of *sannyās*, the Supreme Lor
 
     vyāghra-vāraṇaina-vanya-jantu-kṛṣṇa-gāyakaṁ
     prema-nṛtya-bhāva-matta-jhāḍakhaṇḍa-nāyakam
-    durga-vanya-mārga-bhaṭṭa-mātra-saṅga-saukaraṁ 
+    durga-vanya-mārga-bhaṭṭa-mātra-saṅga-saukaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 Leaving Rāmakeli, the Lord continued through Bengal towards Jagannāth Purī. After leaving Purī Dhām, Lord Chaitanya passed through the Jhāḍakhaṇḍa forest on His way to Vṛndāvan. There He inspired the jungle animals such as tigers, deer, and elephants to join in the congregational chanting of Lord Krishna’s Holy Names. Intoxicated by the sweet Names of the Lord, the animals joyfully danced along with the Lord, who was madly absorbed in the deepest devotional ecstasies. The Supreme Lord experienced profound realizations in solitary worship as He walked down the deep and impenetrable jungle paths of Jhāḍakhaṇḍa with Balabhadra Bhaṭṭāchārya. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
@@ -65,7 +70,7 @@ Leaving Rāmakeli, the Lord continued through Bengal towards Jagannāth Purī. A
 
     gāṅga-yāmunādi-bindu-mādhavādi-mānanaṁ
     māthurārta-chitta-yāmunāgra-bhāga-dhāvanam
-    smārita-vrajāti-tīvra-vipralambha-kātaraṁ 
+    smārita-vrajāti-tīvra-vipralambha-kātaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 Lord Gaurasundar showed great honour towards the Deities along the Ganges-bank in Kāśī, and unto Bindu Mādhava at the confluence of the Ganges and the Yamunā in Prayāga. Following the current of the Yamunā, the Lord began to quickly run along her banks in anxious pursuit of a glimpse of the sacred place known as Mathurā. As divine thoughts of Vṛndāvan’s Pastimes overwhelmed His memory and caused intolerable feelings of separation, Lord Gaurasundar fell unconscious. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
@@ -74,7 +79,7 @@ Lord Gaurasundar showed great honour towards the Deities along the Ganges-bank i
 
     mādhavendra-vipralambha-māthureṣṭa-mānanaṁ
     prema-dhāma-dṛṣṭakāma-pūrva-kuñja-kānanam
-    gokulādi-goṣṭha-gopa-gopikā-priyaṅkaraṁ 
+    gokulādi-goṣṭha-gopa-gopikā-priyaṅkaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 Lord Chaitanya stated that the mood of deep separation that Mādhavendra Purī was able to taste, as depicted in the following beautiful verse first spoken by Śrīmatī Rādhārāṇī, is the zenith point and desirable object of pure adoration:
@@ -99,10 +104,8 @@ While strolling through the forest groves of Vṛndāvan, the Lord was joyfully 
 
     prema-buddha-ruddha-buddhi-matta-nṛtya-kīrtanaṁ
     plāvitāśru-kāñchanāṅga-vāsa-chāturaṅganam
-    kṛṣṇa-kṛṣṇa-rāva-bhāva-hāsya-lāsya-bhāsvaraṁ 
+    kṛṣṇa-kṛṣṇa-rāva-bhāva-hāsya-lāsya-bhāsvaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
 Hopelessly overwhelmed by a surge of pure love, Lord Gaurasundar madly danced and chanted the Holy Names of Krishna. A profuse current of flowing tears streamed from His eyes, passing over the radiant lustre of His giant golden form, over His brilliant garments that resembled the sun, and over the ground in all four directions. The Lord’s joyful Pastimes were ecstatically enhanced by such gestures as His loudly mispronouncing the Holy Name of Krishna in a delirious state, or His roaring with laughter due to being ecstatically absorbed in deep emotion. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
 
-
-> page = 106

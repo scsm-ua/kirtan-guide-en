@@ -1,5 +1,7 @@
 ---
+page: 18
 author: Śrīla Rūpa Goswāmī
+first_line: vāñchā-kalpatarubhyas’ cha
 ---
 
 # vāñchā-kalpatarubhyas’ cha
@@ -31,5 +33,3 @@ I offer my obeisances unto Lord Gaurāṅga, whose divine complexion is a radian
 
 *(Śrīla Rūpa Goswāmī)*
 
-
-> page = 18

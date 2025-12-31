@@ -1,3 +1,8 @@
+---
+page: 182
+first_line: bhuliyā tomāre, saṁsāre āsiyā
+---
+
 # Dainya
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -65,5 +70,3 @@ Travelling from place to place, proud of my education, I grew wealthy and mainta
 
 Now in old age, this Bhakti Vinod very sadly weeps. I failed to worship You, O Lord, and instead passed my life in vain. What will be my fate now?
 
-
-> page = 182

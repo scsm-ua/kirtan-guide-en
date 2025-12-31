@@ -1,8 +1,13 @@
+---
+page: 220
+first_line: śrī-kṛṣṇa-kīrtane jodi mānasa tohāra
+---
+
 # Śrī Śikṣāṣṭakam
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 3
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 The third verse of the Śrī Śikṣāṣṭakam is as follows:
 
@@ -72,5 +77,3 @@ Bhakti Vinod, crying at the Lord’s holy feet says, “O my Lord, when will You
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/sri-krishna-kirtane-jodi-manasa-tohara)
 
-
-> page = 220

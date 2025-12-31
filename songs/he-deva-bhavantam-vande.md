@@ -1,3 +1,8 @@
+---
+page: 242
+first_line: he deva bhavantaṁ vande
+---
+
 # He deva bhavantaṁ vande
 
 ### by Śrīla Rūpa Goswāmī
@@ -40,5 +45,3 @@ Oh eternal Lord, may the bumblebee of my mind, finding there the most wonderful 
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-kabe-habe-bolo-acapella)
 
-
-> page = 242

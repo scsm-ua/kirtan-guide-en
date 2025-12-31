@@ -1,3 +1,8 @@
+---
+page: 58
+first_line: śrī-kṛṣṇa-chaitanya prabhu jīve dayā kori’
+---
+
 # Auspicious Invocation
 # to Śaraṇāgati
 
@@ -71,5 +76,3 @@ Weeping, weeping, I implore thee,\
 Please teach me to surrender,\
 &nbsp;&nbsp;&nbsp;&nbsp;teach me pure devotion.’
 
-
-> page = 58

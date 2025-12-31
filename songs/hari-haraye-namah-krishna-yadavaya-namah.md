@@ -1,3 +1,8 @@
+---
+page: 66
+first_line: hari haraye namaḥ kṛṣṇa yādavāya namaḥ
+---
+
 # Nām-saṅkīrtan
 
 ### by Śrīla Narottam Dās Ṭhākur
@@ -75,5 +80,3 @@ Desiring the lotus feet of Śrī Guru and the Vaiṣṇavas, Narottam Dās sings
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-nama-sankirttan-hari-haraye-namah-krishna)
 
-
-> page = 66

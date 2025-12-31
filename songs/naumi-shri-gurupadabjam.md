@@ -1,3 +1,8 @@
+---
+page: 333
+first_line: naumi śrī-gurupādābjaṁ
+---
+
 # Praṇati Daśakam
 
 ## Ten Prayers in glorification of Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
@@ -15,10 +20,10 @@ I eternally offer my humble obeisances unto the lotus feet of my Most Worshipful
 
     sudīrghonnata-dīptāngaṁ, supībya-vapuṣaṁ param
     tridaṇḍa-tulasīmālā-, gopīchandana-bhūṣitam
-    
+
     achintya-pratibhā-snigdhaṁ, divyajñāna-prabhākaram
     vedādi-sarvaśāstrānāṁ, sāmañjasya-vidhāyakam
-    
+
     gauḍīyāchārya-ratnānām, ujjvalaṁ ratna-kaustubham
     śrī-chaitanya-mahāpremon-, mattālīnāṁ śiromaṇim
 
@@ -63,5 +68,3 @@ In Śrī Nabadwīp Dhām, which is nondifferent from the holy abode of Śrī V�
 
 One who with pure faith happily sings this Praṇatidaśakam every day, gains the qualification to serve the Supreme Lord on the path of spontaneous love (Rāgamarga), by the grace of the associate-servitors of that Śrīla Gurudeva.
 
-
-> page = 333

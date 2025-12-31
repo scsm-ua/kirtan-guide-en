@@ -1,13 +1,18 @@
+---
+page: 14
+first_line: śrī-siddhānta-sarasvatīti vidito
+---
+
 # Bhagavān Śrīla Bhakti Siddhānta Saraswatī Ṭhākur
 
 ### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
     śrī-siddhānta-sarasvatīti vidito
-        gauḍīya-gurv-anvaye           
+        gauḍīya-gurv-anvaye
     bhāto bhānuriva prabhāta-gagane
-        yo gaura-saṅkīrtanaiḥ 
+        yo gaura-saṅkīrtanaiḥ
     māyāvāda-timiṅgilodara-gatān
-        uddhṛtya jīvanimān 
+        uddhṛtya jīvanimān
     kṛṣṇa-prema-sudhābdhi-gāhana-sukhaṁ
         prādāt prabhuṁ taṁ bhaje
 
@@ -23,5 +28,3 @@ of love of Śrī Krishna, the Supreme Person.\
 Śrīla Bhakti Siddhānta, my lord, divine master —\
 at his feet do I pray to serve him forever.”
 
-
-> page = 14

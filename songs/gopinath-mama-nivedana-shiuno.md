@@ -1,8 +1,13 @@
+---
+page: 200
+first_line: gopīnāth, mama nivedana śuno
+---
+
 # Nivedana
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Part 1
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 #### 1
 
@@ -68,5 +73,3 @@ Oh Gopīnāth, You are the ocean of mercy. Having come into this phenomenal worl
 
 Oh Gopīnāth, I am so sinful that although all the demons attained Your lotus feet, Bhakti Vinod has remained in worldly existence.
 
-
-> page = 200

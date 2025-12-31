@@ -1,8 +1,13 @@
+---
+page: 238
+first_line: rādhā-bhajane jodi moti nāhi bhelā
+---
+
 # Śrī Rādhāṣṭaka
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 8
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 #### 1
 
@@ -60,5 +65,3 @@ Umā, Ramā, Satyā, Śachī, Chandrāvālī, and Rukminī are all personal expa
 
 Bhakti Vinod, whose only wealth is the service of Śrī Rādhā, humbly prays to be a serving maid at Her lotus feet.
 
-
-> page = 238

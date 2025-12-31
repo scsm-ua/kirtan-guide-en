@@ -1,3 +1,8 @@
+---
+page: 338
+first_line: bhāgyādhīśa! tvadīyo vimala-sukhamayaḥ
+---
+
 # Śrī Guru-Praśastiḥ
 
 ### Composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
@@ -119,5 +124,3 @@ You are the divine master and protector of all by destroying the philosophy of C
 
 Oh my Lord! Oh divine guardian of the current of the teachings of Śrī Gaurāṅga coming through Śrīla Saraswatī Ṭhākur; who is the protector of pure devotion; who is the dearmost of Śrī Saraswatī Ṭhākur; you are the senior-most *sannyasī*; you are the great divine master. Oh my Lord! Today being your advent day this eternal servant of your lotus feet prays to always bathe in the shower of your mercy.
 
-
-> page = 338

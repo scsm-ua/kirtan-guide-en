@@ -1,8 +1,13 @@
+---
+page: 216
+first_line: pīta-varaṇa kali-pāvana gorā
+---
+
 # Śrī Śikṣāṣṭakam
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 1
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 The first verse of the Śrī Śikṣāṣṭakam is as follows:
 
@@ -82,5 +87,3 @@ Lord Gaurāṅga, whose complexion is golden and who is the deliverer of the fal
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-pita-barana-kali-pavana-gora)
 
-
-> page = 216

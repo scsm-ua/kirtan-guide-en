@@ -1,8 +1,13 @@
+---
+page: 226
+first_line: aparādha-phole mama
+---
+
 # Śrī Śikṣāṣṭakam
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 6
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 The sixth verse of the Śrī Śikṣāṣṭakam is as follows:
 
@@ -67,5 +72,3 @@ Bhakti Vinod, who is devoid of good intelligence cries, “When will I meet with
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/aparadha-phole-mama)
 
-
-> page = 226

@@ -1,3 +1,8 @@
+---
+page: 275
+first_line: nadīyā-nagare nitāi neche neche gāy re
+---
+
 # Śrīman Mahāprabhur śata-nāma
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -181,5 +186,3 @@ He delivered the Māyāvādī sannyāsīs of Kāśī, and He is the bestower of 
 
 In the towns and villages of Nadia, Lord Nityānanda dances ecstatically, singing these divine Names, and Ṭhākur Bhakti Vinod falls down at His reddish lotus feet.
 
-
-> page = 275

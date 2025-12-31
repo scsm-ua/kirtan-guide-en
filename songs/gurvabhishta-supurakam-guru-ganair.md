@@ -1,5 +1,7 @@
 ---
+page: 12
 author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+first_line: gurvābhīṣṭa-supūrakaṁ guru-gaṇair
 ---
 
 # Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
@@ -24,5 +26,3 @@ Devotionally endowed with transcendent sentiment.\
 I worship him, the world-wide guru from high above,\
 The empowered bestower of the seed of Divine Love.”
 
-
-> page = 12

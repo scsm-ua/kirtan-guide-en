@@ -1,3 +1,8 @@
+---
+page: 262
+first_line: jayare jayare jaya paramahaṁsa mahāśaya
+---
+
 # Āchārya vandana
 
 ### Composed by Gopāl Govinda Mahanta
@@ -190,5 +195,3 @@ For this reason I endeavour thus, just like a dwarf aspiring to reach the moon. 
 
 So please keep incessantly showering your mercy, the nectar of ecstatic love of Godhead, and let all the souls of this world be uplifted by that. May all the people of the world dance in the congregational chanting of the Lord’s Holy Name—this is the prayer of this servant of the Vaiṣṇavas.
 
-
-> page = 262

@@ -1,5 +1,7 @@
 ---
+page: 72
 no-author: 1
+first_line: mahāprasāde govinde nāma brahmaṇi
 ---
 
 # Mahāprasāda
@@ -9,5 +11,3 @@ no-author: 1
 
 For those who have not amassed sufficient pious credits they will never be able to honour Mahāprasāda, Lord Govinda, the Holy Name, the *brāhmaṇs* and the Vaiṣṇavas.
 
-
-> page = 72

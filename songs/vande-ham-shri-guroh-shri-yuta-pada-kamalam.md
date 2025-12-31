@@ -1,5 +1,7 @@
 ---
+page: 9
 author: Śrīla Kṛṣṇadās Kavirāj Goswāmī
+first_line: vande ’haṁ śrī-guroḥ śrī-yuta-pada-kamalaṁ
 ---
 
 # Vandanā
@@ -7,7 +9,7 @@ author: Śrīla Kṛṣṇadās Kavirāj Goswāmī
     vande ’haṁ śrī-guroḥ śrī-yuta-pada-kamalaṁ
         śrī-gurūn vaiṣṇavāṁś cha
     śrī-rūpaṁ sāgrajātaṁ saha-gaṇa-
-        raghunāthānvitaṁ taṁ sa-jīvam 
+        raghunāthānvitaṁ taṁ sa-jīvam
     sādvaitaṁ sāvadhūtaṁ parijana-sahitaṁ
         kṛṣṇa-chaitanya-devaṁ
     śrī-rādhā-kṛṣṇa-pādān saha-gaṇa-lalitā-śrī-
@@ -20,8 +22,8 @@ author: Śrīla Kṛṣṇadās Kavirāj Goswāmī
 
 Applying the soothing salve of sambandha-jñāna, a proper acquaintance with the environment, my spiritual master has opened my inner eye and thereby rescued me from the darkness of ignorance, fulfilling my life’s aspirations. I offer my respects unto Śrī Gurudeva.
 
+
 [Srila Govinda Maharaj](https://soundcloud.com/jayasri-sound/vandana-srila-govinda-maharaj)
 
 [Bhudev Prabhu](https://soundcloud.com/huron/07-am031-vande-ham)
 
-> page = 9

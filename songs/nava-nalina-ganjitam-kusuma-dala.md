@@ -1,3 +1,8 @@
+---
+page: 342
+first_line: nava-nalina-gañjitaṁ kusuma-dala
+---
+
 # Praṇati-Pañchakam
 
 ### Composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
@@ -27,7 +32,6 @@
     naumi budha-nāyakaṁ parama-gati-dāyakaṁ
         mama śaraṇa-maraṇa-gaṇa-chintyam
 
-
 #### 1-2
 
 His two feet resemble fresh petals of a lotus flower and distribute fearless blessings; his divine glowing form puts to shame the glow of gold, and is glorified for its beautiful dancing by all the demigods; his lotus face is so charming it puts to shame the charm of the autumnal moon; his broad forehead is decorated with *gopī-chandan tilak*; I adore that Śrīdhara-deva Swāmī always.
@@ -40,5 +44,3 @@ He can put to an end our wandering in this material world; he can protect us fro
 
 He is a death-sentence to arrogant, haughty demons; he is the saviour of everyone in all the three worlds for he distributes the teachings of Śrī Krishna; he is pre-eminent amongst the learned, the most supreme merciful shelter, I adore that Śrīdhara-deva until my death.
 
-
-> page = 342

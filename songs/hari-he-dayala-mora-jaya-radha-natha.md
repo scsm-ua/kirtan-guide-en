@@ -1,5 +1,7 @@
 ---
+page: 195
 author: Śrīla Bhakti Vinod Ṭhākur
+first_line: hari he dayāla mora jaya rādhā-nātha
 ---
 
 # Dainya O Prapatti
@@ -39,5 +41,3 @@ You bring about auspiciousness for the world, and You are the master of all the 
 
 I have considered that in this world there is no one except You who can deliver this fallen servant.
 
-
-> page = 195

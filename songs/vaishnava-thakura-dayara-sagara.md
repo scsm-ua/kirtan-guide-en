@@ -1,3 +1,9 @@
+---
+verse parentheses: non bold
+page: 84
+first_line: (ohe) vaiṣṇava ṭhākura, dayāra sāgara
+---
+
 # Śrī Vaiṣṇava-mahimā-gīti
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -54,7 +60,3 @@ The six good qualities are enthusiasm, patience, confidence, the determination t
 
 The six kinds of saintly association are offering gifts in charity, accepting charitable gifts, revealing one’s mind in confidence, inquiring confidentially, accepting prasādam and offering prasādam.
 
-
-> verse parentheses = non bold
-
-> page = 84

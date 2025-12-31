@@ -1,3 +1,8 @@
+---
+page: 75
+first_line: jayare jayare jaya gaura-sarasvatī
+---
+
 # Śrī Sāraswat-ārati
 
 ### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
@@ -95,5 +100,3 @@ Only by the mercy of Śrī Swarūp Dāmodar, Śrī Rāmananda Rāya, Śrī Rūpa
 
 All glories to Śrī Guru, Gaurāṅga, Rādhā-Govindasundar. O devotees, always sing Their eternal glories.
 
-
-> page = 75

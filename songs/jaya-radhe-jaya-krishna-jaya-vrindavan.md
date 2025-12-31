@@ -1,3 +1,8 @@
+---
+page: 246
+first_line: jaya rādhe, jaya kṛṣṇa, jaya vṛndāvan
+---
+
 # Śrī Vraja-dhāma-mahimāmṛta
 
 ### by Śrīla Kṛṣṇadās Kavirāj Goswāmī
@@ -79,5 +84,3 @@ All glories, all glories to the mellow of conjugal love, which is the most excel
 
 Remembering the lotus feet of Lord Nityānanda’s consort, Śrī Jāhnavā Devī, this very fallen and lowly Krishnadās sings the saṅkīrtan of the Holy Name.
 
-
-> page = 246

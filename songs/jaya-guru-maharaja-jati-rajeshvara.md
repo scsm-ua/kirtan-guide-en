@@ -1,3 +1,8 @@
+---
+page: 45
+first_line: jaya ‘guru-mahārāja’ jati-rājeśvara
+---
+
 # Śrī Guru Ārati-stuti
 
 ### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
@@ -162,5 +167,3 @@ O personification of perfect conclusions\
 I sing this prayer at your *ārati*,\
 &nbsp;&nbsp;&nbsp;&nbsp;with joy — your humble servant.
 
-
-> page = 45

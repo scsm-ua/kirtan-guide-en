@@ -1,3 +1,8 @@
+---
+page: 166
+first_line: ohe harinām, tava mahimā apāra
+---
+
 # Śrī Nāmāṣṭakam 7
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -58,5 +63,3 @@ You are delightful and beautiful, the personification of complete cognizance and
 
 At the lotus feet of Śrīla Rūpa Goswāmī, Bhakti Vinod constantly begs at every moment for the direct revelation of the Holy Name.
 
-
-> page = 166

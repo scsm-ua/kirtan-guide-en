@@ -1,3 +1,8 @@
+---
+page: 72
+first_line: bhāi-re! śorīra avidyā-jāl, joḍendriya tāhe kāl
+---
+
 # Śrī Prasāda-sevāya Gīti
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -25,6 +30,3 @@ Oh brothers! Lord Krishna is very merciful—just to control the tongue He has g
     (dayāl nitāi chaitanya bole, preme bhore ḍākare)
         (nitāi gaura haribol)
 
-
-
-> page = 72

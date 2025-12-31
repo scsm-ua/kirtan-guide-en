@@ -1,8 +1,13 @@
+---
+page: 228
+first_line: gāite gāite nāma ki dośā hoilo
+---
+
 # Śrī Śikṣāṣṭakam
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 7a
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 The seventh verse of the Śrī Śikṣāṣṭakam is as follows:
 
@@ -76,5 +81,3 @@ I am unable to further tolerate this separation from my Lord Krishna and am read
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/gaite-gaite-nama-ki-dasa-hoilo)
 
-
-> page = 228

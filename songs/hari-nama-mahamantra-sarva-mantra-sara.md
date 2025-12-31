@@ -1,5 +1,7 @@
 ---
+page: 29
 author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+first_line: hari-nāma mahāmantra sarva-mantra-sāra
 ---
 
 # Daśa-vidha Nāmāparādha
@@ -134,5 +136,3 @@ Those pure souls who chant the Name in Holy Congregation —\
 The miracle of love for Krishna they will surely savour,\
 The Name Divine Himself will shine within their hearts forever.
 
-
-> page = 29

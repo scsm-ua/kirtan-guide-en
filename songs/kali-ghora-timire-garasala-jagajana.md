@@ -1,3 +1,8 @@
+---
+page: 140
+first_line: kali-ghora timire garasala jagajana
+---
+
 # Kali-ghora timire
 
 ### by Śrīla Nayanānanda Dās
@@ -37,5 +42,3 @@ The people of this world have now been devoured by the dense darkness of this ag
 
 “If one knows the two kinds of Vedic knowledge, he still does not know anything. But if one knows Lord Gaurāṅga, he knows the most precious knowledge. Nayanānanda says: Such a person knows everything. All perfections stay in the palm of his hand.”
 
-
-> page = 140

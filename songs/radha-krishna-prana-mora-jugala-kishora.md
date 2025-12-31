@@ -1,3 +1,8 @@
+---
+page: 245
+first_line: rādhā-kṛṣṇa prāṇa mora jugala-kiśora
+---
+
 # Sakhi-vṛnde Vijñaptiḥ
 
 ## Prayer to the Gopīs
@@ -46,5 +51,3 @@ When, following the orders of Lalitā, Viśākhā and the other *gopīs*, will I
 
 Narottam Dās, the servant of the servant of Śrī Krishna Chaitanya Mahāprabhu, longs for this service to the Divine Couple.
 
-
-> page = 245

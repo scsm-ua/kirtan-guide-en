@@ -1,3 +1,8 @@
+---
+page: 40
+first_line: jaya guru mahārāja karuṇā-sāgara
+---
+
 # Śrī Śrī Nitāi-Chaitanya-Ārati
 
 ### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
@@ -89,5 +94,3 @@ Sārvabhauma Bhaṭṭāchārya, Gopīnāth Āchārya and the followers in the *
 
 Inconceivably Śrī Śrī Nitāi-Chaitanya have manifested and through the mercy of Śrī Gurudeva this fallen soul sees Their ārati and joins within the saṅkīrtan.
 
-
-> page = 40

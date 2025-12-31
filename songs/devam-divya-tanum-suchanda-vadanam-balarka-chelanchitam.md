@@ -1,13 +1,18 @@
+---
+page: 13
+first_line: devaṁ divya-tanuṁ suchanda-vadanaṁ-bālārka-chelāñchitaṁ
+---
+
 # Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 
 ### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
     devaṁ divya-tanuṁ suchanda-vadanaṁ-
-        bālārka-chelāñchitaṁ  
+        bālārka-chelāñchitaṁ
     sāndrānanda-puraṁ sad-eka-varanaṁ
-        vairāgya-vidyāmbudhim  
+        vairāgya-vidyāmbudhim
     śrī-siddhānta-nidhiṁ subhakti-lasitaṁ
-        sārasvatānām varaṁ 
+        sārasvatānām varaṁ
     vande taṁ śubhadaṁ mad-eka-śaraṇaṁ
         nyāsīśvaraṁ śrīdharam
 
@@ -24,5 +29,3 @@ foremost great general of the whole renounced order,\
 my lord and my master, my only shelter,\
 I worship his feet, Śrīla Śrīdhar-Deva.”
 
-
-> page = 13

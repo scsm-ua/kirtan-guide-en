@@ -1,3 +1,8 @@
+---
+page: 170
+first_line: mānasa, deho, geho, jo kichū mora
+---
+
 # Mānasa Deho Geho
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -58,5 +63,3 @@ Father, mother, lover, son, Lord, preceptor, and husband — You are everything 
 
 Bhakti Vinod says, “O Krishna, please hear me! Oh Lord of Rādhā, You are my life and soul!”
 
-
-> page = 170

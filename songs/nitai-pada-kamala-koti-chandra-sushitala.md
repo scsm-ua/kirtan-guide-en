@@ -1,3 +1,8 @@
+---
+page: 128
+first_line: nitāi-pada-kamala, koṭī-chandra-suśītala
+---
+
 # Manaḥ-Śikṣā
 
 ### by Śrīla Narottam Dās Ṭhākur
@@ -58,5 +63,3 @@ Ever aspire for the shelter of His feet;\
 Narottam is very sad — O Nitāi make me happy —\
 Please keep me at Your lovely lotus feet!
 
-
-> page = 128

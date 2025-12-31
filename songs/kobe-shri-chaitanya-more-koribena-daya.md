@@ -1,3 +1,8 @@
+---
+page: 77
+first_line: kobe śrī chaitanya more-koribena dayā
+---
+
 # Dainya Prārthanā Gīti
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -51,5 +56,3 @@ Then satisfied by that Vaiṣṇava’s prayer Krishna will be merciful upon thi
 
 Bhakti Vinod Ṭhākur submits this prayer at the lotus feet of the Vaiṣṇavas. “Give me your Grace and accept this lowly soul in your association.”
 
-
-> page = 77

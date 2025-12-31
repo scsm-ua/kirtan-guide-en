@@ -1,3 +1,8 @@
+---
+page: 299
+first_line: prabhu kohe—kohilaṅ ei mahāmantra
+---
+
 # Prabhu kohe
 
 ### by Śrīla Vṛndāvan Dās Ṭhākur
@@ -23,5 +28,3 @@
 
 [Sadhu Priya Prabhu](https://soundcloud.com/huron/prabhu-kohe-kohilan)
 
-
-> page = 299

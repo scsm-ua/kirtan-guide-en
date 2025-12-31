@@ -1,3 +1,8 @@
+---
+page: 308
+first_line: guror guro me paramo gurus tvaṁ
+---
+
 # Śrī Śrīmad Gaura-Kiśora-
 # namaskāra Daśakam
 
@@ -95,5 +100,3 @@ Forsaking the company of the residents of Kuliyā town to accept the service of 
 
 Although I remain deep in the mud of offences, I (a fallen soul) am begging you for your causeless mercy. Please be gracious and deliver this soul bereft. Oh Gaura Kiśora, again and yet again do I make my obeisance unto you.
 
-
-> page = 308

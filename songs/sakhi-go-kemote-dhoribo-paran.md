@@ -1,8 +1,13 @@
+---
+page: 231
+first_line: sakhi go kemote dhoribo parāṇ
+---
+
 # Śrī Śikṣāṣṭakam
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 7c
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 #### 1
 
@@ -34,5 +39,3 @@ Footnote to verse 1: *Śrīla Śrīdhar Mahārāja advised not to sing ‘sakhi 
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/sakhi-go-kemote)
 
-
-> page = 231

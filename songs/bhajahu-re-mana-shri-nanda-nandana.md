@@ -1,3 +1,8 @@
+---
+page: 169
+first_line: bhajahu̐ re mana śrī-nanda-nandana
+---
+
 # Bhajahu̐ Re Mana
 
 ### by Śrīla Govinda Dās Kavirāj
@@ -41,5 +46,3 @@ It is the desire and great longing of Govinda dās to engage himself in the nine
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-bhajahu-re-mana)
 
-
-> page = 169

@@ -1,3 +1,8 @@
+---
+page: 260
+first_line: bhayabhañjana jayaśaṁsana
+---
+
 # Śrī Dayita Dās
 # Praṇati Pañchakam
 
@@ -60,5 +65,3 @@ On the bank of Śrī Rādhā Kuṇḍa at Svānanda Sukhada Kuñja, he is devote
 
 He is immaculate joy incarnate, or, he is the graciousness or the joy of Vimalā Devī. He manifested the Pastimes of his Advent at Puruṣottama Kṣetra in the holy land of Orissa, and he revealed his Pastimes of delivering the fallen souls and extending his mercy upon them (by awarding them the gift of divine love) at the ‘new isles,’ or Nabadwīp. Circumambulating Gaura Dhām in the same way as traditionally done at Vraja Dhām and Puruṣottama Dhām, he continuously propagates - the loving desire of Vraja, the divine abode of Vaikuṇṭha, and the holy name of Krishna. On his Day of Holy Advent, I (again and again) make my obeisance unto that dear associate of Śrī Vṛṣabhānunandinī, and the servitors of his holy lotus feet.
 
-
-> page = 260

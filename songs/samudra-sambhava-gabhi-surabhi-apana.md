@@ -1,12 +1,12 @@
 ---
+page: 336
 author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+first_line: samudra-sambhavā gābhī surabhī āpana
 ---
-
 
 # Śrī Govinda Kuṇḍa Māhātmya
 
 ## The Glories of Śrī Govinda Kuṇḍa
-
 ## Śrī Girirāj-khaṇḍam – Śrī Garga-saṁhitā
 
     atha govardhane ramye surabhi gauḥ samudrajā
@@ -19,7 +19,6 @@ author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
     prāpnoti kṛṣṇa-sārūpyaṁ maithilendra na saṁśayaḥ
 
 ## Bengali verse illumination
-
 ## by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
 #### 1
@@ -57,5 +56,3 @@ Sometimes, by great fortune, someone will get to taste the water of Govinda Ku�
 
 Anyone who bathes in Śrī Govinda Kuṇḍa, desiring to serve Krishna, attains divine service of Śrī Śrī Rādhā-Krishna in Gupta Govardhan (hidden Govardhan).
 
-
-> page = 336

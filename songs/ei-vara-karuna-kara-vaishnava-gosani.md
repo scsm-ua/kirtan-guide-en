@@ -1,3 +1,8 @@
+---
+page: 158
+first_line: ei-vāra karuṇā kara vaiṣṇava gosāñi
+---
+
 # Vaiṣṇava Vijñāpti
 
 ### by Śrīla Narottam Dās Ṭhākur
@@ -44,5 +49,3 @@ In your heart Govinda is always resting. Śrī Govinda Himself says, “My devot
 
 I hope that in every birth I will obtain the dust of your lotus feet. Śrī Narottam prays, “Please, Oh Vaiṣṇava Goswāmī, be kind unto me.”
 
-
-> page = 158

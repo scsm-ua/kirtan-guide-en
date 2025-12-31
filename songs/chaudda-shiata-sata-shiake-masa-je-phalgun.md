@@ -1,3 +1,8 @@
+---
+page: 290
+first_line: chaudda-śata sāta-śake māsa je phālgun
+---
+
 # Śrī Gaura Purṇīmā
 
 ## Verses 89-124 from Śrī Chaitanya Charitāmṛta
@@ -311,5 +316,3 @@ Anyone who attains a human birth but does not have the opportunity to hear of Ga
 
 Taking on my head as my own wealth the lotus feet of Śrī Chaitanya Mahāprabhu, Śrī Nityānanda Prabhu, Āchārya Advaitachandra, Śrī Swarūp Dāmodar, Śrī Rūpa and Śrī Raghunāth and all the devotees of Mahāprabhu, I, Krishnadās, sing the glories of the Lord’s appearance.
 
-
-> page = 290

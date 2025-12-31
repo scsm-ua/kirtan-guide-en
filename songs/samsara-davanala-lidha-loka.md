@@ -1,3 +1,8 @@
+---
+page: 56
+first_line: saṁsāra-dāvānala-līḍha-loka
+---
+
 # Śrī Śrī Gurvāṣṭaka
 
 ### by Śrīla Viśvanāth Chakravartī Ṭhākur
@@ -86,5 +91,3 @@ One who, during the Brāhma-muhūrta (nintysix minutes before sunrise) with meti
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-sri-sri-gurvvashtakam-samsara-davanala-lidha-loka)
 
-
-> page = 56
