@@ -1,4 +1,8 @@
 {
+  "meta": {
+    "page": 200,
+    "first_line": "gopīnāth, mama nivedana śuno"
+  },
   "title": [
     "Nivedana"
   ],
@@ -97,8 +101,5 @@
         "Oh Gopīnāth, I am so sinful that although all the demons attained Your lotus feet, Bhakti Vinod has remained in worldly existence."
       ]
     }
-  ],
-  "attributes": {
-    "page": "200"
-  }
+  ]
 }

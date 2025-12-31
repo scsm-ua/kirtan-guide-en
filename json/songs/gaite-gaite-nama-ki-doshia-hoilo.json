@@ -1,4 +1,8 @@
 {
+  "meta": {
+    "page": 228,
+    "first_line": "gāite gāite nāma ki dośā hoilo"
+  },
   "title": [
     "Śrī Śikṣāṣṭakam"
   ],
@@ -117,8 +121,5 @@
       "iframe_url": "https://w.soundcloud.com/player/?url=https%3A%2F%2Fsoundcloud.com%2Fbhakti-lalita-devi%2Fgaite-gaite-nama-ki-dasa-hoilo",
       "embed_code": "<iframe width=\"100%\" height=\"20\" scrolling=\"no\" frameborder=\"no\" allow=\"autoplay\" src=\"https://w.soundcloud.com/player/?url=https%3A%2F%2Fsoundcloud.com%2Fbhakti-lalita-devi%2Fgaite-gaite-nama-ki-dasa-hoilo\"></iframe>"
     }
-  ],
-  "attributes": {
-    "page": "228"
-  }
+  ]
 }

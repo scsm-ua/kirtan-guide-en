@@ -1,4 +1,8 @@
 {
+  "meta": {
+    "page": 45,
+    "first_line": "jaya ‘guru-mahārāja’ jati-rājeśvara"
+  },
   "title": [
     "Śrī Guru Ārati-stuti"
   ],
@@ -214,8 +218,5 @@
         "&nbsp;&nbsp;&nbsp;&nbsp;with joy — your humble servant."
       ]
     }
-  ],
-  "attributes": {
-    "page": "45"
-  }
+  ]
 }

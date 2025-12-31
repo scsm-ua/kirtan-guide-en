@@ -1,4 +1,8 @@
 {
+  "meta": {
+    "page": 68,
+    "first_line": "bhaja bhakata-vatsala śrī-gaurahari"
+  },
   "title": [
     "Śrī Bhog Ārati Gīti"
   ],
@@ -186,8 +190,5 @@
         "śachī dulala jaya jaya gaura gopāla"
       ]
     }
-  ],
-  "attributes": {
-    "page": "68"
-  }
+  ]
 }

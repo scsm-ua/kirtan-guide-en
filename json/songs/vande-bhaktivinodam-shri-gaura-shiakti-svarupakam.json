@@ -1,4 +1,8 @@
 {
+  "meta": {
+    "page": 16,
+    "first_line": "vande bhaktivinodaṁ śrī-gaura-śakti-svarūpakam"
+  },
   "title": [
     "Śrīla Bhakti Vinod Ṭhākur"
   ],
@@ -22,8 +26,5 @@
         "of Śrī Rādhā’s devotion.”"
       ]
     }
-  ],
-  "attributes": {
-    "page": "16"
-  }
+  ]
 }

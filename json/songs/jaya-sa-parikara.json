@@ -1,6 +1,8 @@
 {
   "meta": {
-    "no-author": 1
+    "page": 26,
+    "no-author": 1,
+    "first_line": "jaya sa-parikara"
   },
   "title": [
     "Jaya Dhvani"
@@ -92,8 +94,5 @@
         "nitāi-gaura-premānande haribol!"
       ]
     }
-  ],
-  "attributes": {
-    "page": "26"
-  }
+  ]
 }

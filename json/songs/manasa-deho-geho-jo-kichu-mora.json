@@ -1,4 +1,8 @@
 {
+  "meta": {
+    "page": 170,
+    "first_line": "mānasa, deho, geho, jo kichū mora"
+  },
   "title": [
     "Mānasa Deho Geho"
   ],
@@ -86,8 +90,5 @@
         "Bhakti Vinod says, “O Krishna, please hear me! Oh Lord of Rādhā, You are my life and soul!”"
       ]
     }
-  ],
-  "attributes": {
-    "page": "170"
-  }
+  ]
 }

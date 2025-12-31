@@ -1,6 +1,8 @@
 {
   "meta": {
-    "author": "Śrīla Bhakti Vinod Ṭhākur"
+    "page": 150,
+    "author": "Śrīla Bhakti Vinod Ṭhākur",
+    "first_line": "yadi te hari-pāda-saroja-sudhā"
   },
   "title": [
     "Śrī Godrumachandra-bhajanopadeśa"
@@ -260,8 +262,5 @@
       "iframe_url": "https://w.soundcloud.com/player/?url=https%3A%2F%2Fsoundcloud.com%2Fbharatimaharaj%2Fmadhusudan-maharaj-jadite",
       "embed_code": "<iframe width=\"100%\" height=\"20\" scrolling=\"no\" frameborder=\"no\" allow=\"autoplay\" src=\"https://w.soundcloud.com/player/?url=https%3A%2F%2Fsoundcloud.com%2Fbharatimaharaj%2Fmadhusudan-maharaj-jadite\"></iframe>"
     }
-  ],
-  "attributes": {
-    "page": "150"
-  }
+  ]
 }

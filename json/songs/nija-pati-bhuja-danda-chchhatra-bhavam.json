@@ -1,4 +1,8 @@
 {
+  "meta": {
+    "page": 32,
+    "first_line": "nija-pati-bhuja-daṇḍa-chchhatra-bhāvaṁ"
+  },
   "title": [
     "Śrī Śrī Govardhana-vāsa-prārthanā-daśakam"
   ],
@@ -160,8 +164,5 @@
       "iframe_url": "https://w.soundcloud.com/player/?url=https%3A%2F%2Fsoundcloud.com%2Fkesavananda-dasa%2Fa-dwelling-near-sri-govardhan",
       "embed_code": "<iframe width=\"100%\" height=\"20\" scrolling=\"no\" frameborder=\"no\" allow=\"autoplay\" src=\"https://w.soundcloud.com/player/?url=https%3A%2F%2Fsoundcloud.com%2Fkesavananda-dasa%2Fa-dwelling-near-sri-govardhan\"></iframe>"
     }
-  ],
-  "attributes": {
-    "page": "32"
-  }
+  ]
 }
