@@ -9,8 +9,8 @@ importers:
   .:
     dependencies:
       songbook-md-json-parser:
-        specifier: git+https://github.com/scsm-ua/songbook-md-json-parser.git
-        version: https://codeload.github.com/scsm-ua/songbook-md-json-parser/tar.gz/98c659c75e573520647d3fb6817bc8df68dda590
+        specifier: github:scsm-ua/songbook-md-json-parser
+        version: https://codeload.github.com/scsm-ua/songbook-md-json-parser/tar.gz/99db05aa241417d171a5efbb8bec3048e49f3a83
 
 packages:
 
@@ -21,8 +21,8 @@ packages:
     resolution: {integrity: sha512-qQKT4zQxXl8lLwBtHMWwaTcGfFOZviOJet3Oy/xmGk2gZH677CJM9EvtfdSkgWcATZhj/55JZ0rmy3myCT5lsA==}
     hasBin: true
 
-  songbook-md-json-parser@https://codeload.github.com/scsm-ua/songbook-md-json-parser/tar.gz/98c659c75e573520647d3fb6817bc8df68dda590:
-    resolution: {tarball: https://codeload.github.com/scsm-ua/songbook-md-json-parser/tar.gz/98c659c75e573520647d3fb6817bc8df68dda590}
+  songbook-md-json-parser@https://codeload.github.com/scsm-ua/songbook-md-json-parser/tar.gz/99db05aa241417d171a5efbb8bec3048e49f3a83:
+    resolution: {tarball: https://codeload.github.com/scsm-ua/songbook-md-json-parser/tar.gz/99db05aa241417d171a5efbb8bec3048e49f3a83}
     version: 1.0.0
     hasBin: true
 
@@ -34,6 +34,6 @@ snapshots:
     dependencies:
       argparse: 2.0.1
 
-  songbook-md-json-parser@https://codeload.github.com/scsm-ua/songbook-md-json-parser/tar.gz/98c659c75e573520647d3fb6817bc8df68dda590:
+  songbook-md-json-parser@https://codeload.github.com/scsm-ua/songbook-md-json-parser/tar.gz/99db05aa241417d171a5efbb8bec3048e49f3a83:
     dependencies:
       js-yaml: 4.1.1
