@@ -12,8 +12,7 @@
     },
     "homepage": "https://github.com/scsm-ua/kirtan-guide-en#readme",
     "scripts": {
-      "build": "songbook-build",
-      "prepare": "npm run build"
+      "build": "songbook-build"
     },
     "dependencies": {
       "songbook-md-json-parser": "git+https://github.com/scsm-ua/songbook-md-json-parser.git"
