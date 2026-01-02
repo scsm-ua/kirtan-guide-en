@@ -1,5 +1,6 @@
 ---
 first_line: āchārya-varyaṁ gaura-dhāma-niṣṭhaṁ
+no-author: 1
 ---
 
 # Śrīla Bhakti Rañjan Madhusūdana Mahārāj
