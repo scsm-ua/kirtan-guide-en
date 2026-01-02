@@ -16,6 +16,6 @@
     "test": "songbook-validate"
   },
   "dependencies": {
-    "songbook-md-json-parser": "github:scsm-ua/songbook-md-json-parser#v1.2.0"
+    "songbook-md-json-parser": "github:scsm-ua/songbook-md-json-parser"
   }
 }
