@@ -1,3 +1,8 @@
+---
+page: 162
+first_line: kṛṣṇotkīrtana-gāna-nartana-parau
+---
+
 # Śrī Śrī Ṣaḍ-Gosvāmy-aṣṭakam
 
 ### by Śrīla Śrīnivās Āchārya
@@ -106,5 +111,3 @@ I offer my respectful obeisances unto the Six Goswāmīs, namely Śrī Rūpa Gos
 
 I offer my respectful obeisances unto the Six Goswāmīs, namely Śrī Rūpa Goswāmī, Śrī Sanātan Goswāmī, Śrī Raghunāth Bhaṭṭa Goswāmī, Śrī Raghunāth Dās Goswāmī, Śrī Jīva Goswāmī, and Śrī Gopāl Bhaṭṭa Goswāmī, who were chanting very loudly everywhere in Vṛndāvan, shouting, “Queen of Vṛndāvan, Rādhārāṇī! O Lalitā! O son of Nanda Mahārāj! Where are you all now? Are you just on the hill of Govardhan, or are you under the trees on the bank of the Yamunā? Where are you?” These were their moods in executing Krishna consciousness.
 
-
-> page = 162

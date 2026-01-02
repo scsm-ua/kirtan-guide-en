@@ -1,3 +1,8 @@
+---
+page: 160
+first_line: nārada muni, bājāya vīṇā
+---
+
 # Śrī Nāmāṣṭakam 8
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -59,5 +64,3 @@ The Holy Name of Śrī Krishna has fulfilled all my desires by thus manifesting 
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-namastakam-song-8-narada-muni-bajaya-vina)
 
-
-> page = 160

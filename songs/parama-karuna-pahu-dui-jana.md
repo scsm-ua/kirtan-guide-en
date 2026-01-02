@@ -1,3 +1,8 @@
+---
+page: 132
+first_line: parama karuṇa, pahu̐ dūi jana
+---
+
 # Śrī Śrī Gaura-Nityānander Dayā
 
 ### by Śrīla Lochan Dās Ṭhākur
@@ -38,5 +43,3 @@ Look, O brother! There are no benefactors in the three worlds who are as mercifu
 
 Absorbed in the cycle of birth and death, having fallen by the wayside without any hope for achieving Their company, the lord of death will come and make you suffer the results of your activities—so sings Lochan Dās.
 
-
-> page = 132

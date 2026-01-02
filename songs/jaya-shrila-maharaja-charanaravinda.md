@@ -1,3 +1,8 @@
+---
+page: 254
+first_line: jaya śrīla mahārāja charaṇāravinda
+---
+
 # Āchārya-charaṇa-vandana
 
 ### Composed by Śrīpād Bhakti Ānanda Sāgar Mahārāj
@@ -114,5 +119,3 @@ Lost, deluded souls dishonour thee, alas! and perish.
 By thy Grace shall we now serve our Lord and Golden Master,\
 This fallen soul exults in thy Sweet Chanting Dance forever
 
-
-> page = 254

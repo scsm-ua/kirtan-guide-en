@@ -1,3 +1,8 @@
+---
+page: 62
+first_line: vibhāvarī śeṣa, āloka-praveśa
+---
+
 # Vibhāvarī Śeṣa
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -74,5 +79,3 @@ He increases the ecstasy of His devotees. He is the reservoir of all love and is
 
 Lord Krishna is the life of the River Yamunā. He is always absorbed in amorous Pastimes, and He is the moon of the *gopīs*’ minds, which are like the chakora birds that subsist only upon moonlight. O mind, obey these words of mine and sing the glories of Śrī Krishna in the form of these Holy Names, which are full of nectarean mellows.
 
-
-> page = 62

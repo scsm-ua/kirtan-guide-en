@@ -1,8 +1,13 @@
+---
+page: 232
+first_line: bondhu-goṇ! śunoho vachana mora
+---
+
 # Śrī Śikṣāṣṭakam
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 8a
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 The eighth verse of the Śrī Śikṣāṣṭakam is as follows:
 
@@ -65,5 +70,3 @@ In this way, Bhakti Vinod, in both union and separation, knows that Krishna is t
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bondhu-gon-sunoho-vachana-mora)
 
-
-> page = 232

@@ -1,3 +1,8 @@
+---
+page: 134
+first_line: gaurāṅgera duṭi pada, jār dhana sampada
+---
+
 # Sāvaraṇa-Śrī-Gaura-mahimā
 
 ### by Śrīla Narottam Dās Ṭhākur
@@ -41,5 +46,3 @@ Whoever dives into the waves of the nectarean ocean of love of Lord Gaurāṅga 
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-savarana-sri-gaura-mahima-gaurangera-duti-pada)
 
-
-> page = 134

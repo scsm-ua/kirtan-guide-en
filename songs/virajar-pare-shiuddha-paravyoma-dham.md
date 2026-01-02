@@ -1,3 +1,8 @@
+---
+page: 237
+first_line: virajār pāre śuddha-paravyoma-dhām
+---
+
 # Śrī Rādhāṣṭaka
 
 ## Song 2
@@ -59,5 +64,3 @@ The creeper never desires to leave the company of the tamāl tree; the creeper p
 
 Other than the meeting of these two, Bhakti Vinod desires but nothing else.
 
-
-> page = 237

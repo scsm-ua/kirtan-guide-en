@@ -1,3 +1,8 @@
+---
+page: 64
+first_line: ṭhākura vaiṣṇava-gaṇa kori ei nivedana
+---
+
 # Ṭhākura-vaiṣṇava-gaṇa
 
 ### by Śrīla Narottam Dās Ṭhākur
@@ -41,5 +46,3 @@ My mind became immersed in the impermanent satisfaction of the senses, and I cou
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-thakura-vaishnava-gana)
 
-
-> page = 64

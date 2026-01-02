@@ -1,3 +1,8 @@
+---
+page: 252
+first_line: śrita-kamalā-kuchha-maṇḍala dhṛta
+---
+
 # Śrita Kamalā
 
 ### Composed by Śrīla Jayadeva Goswāmī
@@ -68,5 +73,3 @@ The poet Śrī Jayadeva offers this song of devotion and shining good fortune to
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/sri-mangala-gitam)
 
-
-> page = 252

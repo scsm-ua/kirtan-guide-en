@@ -1,3 +1,8 @@
+---
+page: 244
+first_line: jaya jaya rādhā-kṛṣṇa jugala-milan
+---
+
 # Śrī Jugala-ārati
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -44,5 +49,3 @@ Viśākhā and the other girls sing songs in various tunes and moods as Krishna�
 
 Yearning to attain the lotus feet of Śrī Śrī Rādhā-Krishna, Bhakti Vinod floats in happiness at the gopīs’ feet.
 
-
-> page = 244

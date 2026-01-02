@@ -1,3 +1,8 @@
+---
+page: 206
+first_line: śrī-rūpa-mañjarī-pada, sei mora sampada
+---
+
 # Śrī-Rūpa-Mañjarī-pada
 
 ### by Śrīla Narottam Dās Ṭhākur
@@ -30,7 +35,7 @@
     hā hā rūpa kara dayā,    deho more pada-chāyā,
         narottama loilo śaraṇa
 
-## Commentary by Śrīla B.R. Śrīdhar Dev-Goswāmī: 
+## Commentary by Śrīla B.R. Śrīdhar Dev-Goswāmī:
 
 #### 1
 
@@ -50,7 +55,7 @@ The most secret service of both can be supplied through the *mañjarīs*. In the
 
 *Anukūla habe viddhi, se-pade hoibe siddhi* — I only pray to the controller who is at the root of all these arrangements of affairs in this world, “Please connect me there. Oh Absolute Manager, may you grant my prayer that all my tendencies may go to attain her favour. *Nirakhibo e dui nayane* — and it will be so very intense and concrete as if I can see it with these eyes. It will not be vague, abstract, or imagination, but I want the most concrete realisation by the grace of the Absolute Manager.” *Se rūpa-mādhurī-rāśi, prāṇa-kuvalaya-śaśī* — what sort of high class beauty is there in her holy feet! I want to jump. Let my heart be a lotus.
 
-There are two classes of lotus: the white lotus came from the sun and the red from the moon. The *kuvalaya* is a mixture of the two. The lustre of her body will feed me day and night as the life of my life which is compared to a *kuvalaya*. The *kuvalaya* is fed and nourished by the lustre of the moon, and her holy feet are the moon, and my very vitality is likened to the lotus. May the lustre of her beauty maintain and nourish my heart of hearts. *Praphullita hobe niśi-dine* — and the lotus of my heart will grow by that ray, and dance. 
+There are two classes of lotus: the white lotus came from the sun and the red from the moon. The *kuvalaya* is a mixture of the two. The lustre of her body will feed me day and night as the life of my life which is compared to a *kuvalaya*. The *kuvalaya* is fed and nourished by the lustre of the moon, and her holy feet are the moon, and my very vitality is likened to the lotus. May the lustre of her beauty maintain and nourish my heart of hearts. *Praphullita hobe niśi-dine* — and the lotus of my heart will grow by that ray, and dance.
 
 #### 4
 
@@ -60,5 +65,3 @@ There are two classes of lotus: the white lotus came from the sun and the red fr
 
 This was composed by Narottam Ṭhākur in praise of Śrīla Rūpa Goswāmī. In this way he has given us light of the higher quarter of bhajan life. This sampradāya is named as the Rūpānuga-sampradāya, and our Guru-paramparā and all these things are adjusted according to that. He wrote many songs and they are of very substantive firmament, very ecstatic, and of deep faith.
 
-
-> page = 206

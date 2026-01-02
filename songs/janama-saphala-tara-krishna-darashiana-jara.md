@@ -1,3 +1,8 @@
+---
+page: 248
+first_line: janama saphala tā’ra, kṛṣṇa-daraśana jā’ra
+---
+
 # Rūpa-Kīrtan
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -63,5 +68,3 @@ What a wonderful crown upon His head! What a wonderful flute He is holding in Hi
 
 Accepting the form of a honeybee, I always hope for a residence near His lotus feet. And I will get it very easily because I always sing the glories of Krishna, adoring no-one else.
 
-
-> page = 248

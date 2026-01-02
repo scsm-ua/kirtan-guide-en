@@ -1,3 +1,8 @@
+---
+page: 168
+first_line: ki-rūpe pāibo sevā mui durāchāra
+---
+
 # Ki-rūpe pāibo sevā
 
 ### by Śrīla Narottam Dās Ṭhākur
@@ -37,5 +42,3 @@ Even if I can cure my blindness and defeat Māyā in the form of this hangman, I
 
 Oh master, Oh purifier of the sinful, Oh saviour of the fallen souls, you do not see the faults of others, please rescue this Narottam Dās.
 
-
-> page = 168

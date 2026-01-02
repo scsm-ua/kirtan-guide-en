@@ -1,3 +1,8 @@
+---
+page: 343
+first_line: mahā-bhaya śaṅkula e bhava taraṅginī
+---
+
 # Māyā Duratyayā
 
 ### Composed by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
@@ -45,5 +50,3 @@ O my mind, your attention is like the wind. Your real wealth will be found at th
 
 Offer yourself to the lotus feet of the Lord who is the owner and controller of Māyā, taking shelter there in all humility. Do not even dream that without His lotus feet you can properly adjust with the environment or practice spiritual life (*dhārma*).
 
-
-> page = 343

@@ -1,3 +1,9 @@
+---
+verse parentheses: non bold
+page: 80
+first_line: śrī guru charaṇa-padma, kevala-bhakati
+---
+
 # Śrī Guru-vaiṣṇava
 # Māhātmya-gīti
 
@@ -25,7 +31,7 @@ Make the teachings from the lotus mouth of the Spiritual Master one with your he
 
     chakṣu-dāna dilā jei, janme janme prabhu sei,
         divya-jñāna hṛde prokāśito
-    prema-bhakti jāhā hoite,    avidyā vināśa jāte, 
+    prema-bhakti jāhā hoite,    avidyā vināśa jāte,
         vede gāya jā̐hāra charito
 
 He who has given me the gift of transcendental vision is my lord, birth after birth. By his mercy divine knowledge is revealed within the heart, bestowing loving devotion and destroying ignorance. The Vedic Scriptures sing of his character.
@@ -50,7 +56,3 @@ O Spiritual Master, ocean of mercy, and friend of the fallen souls, you are the 
 
 I have surrendered, I have surrendered unto your fearless lotus feet. Please give your mercy. Oh Śrī Gurudeva, saviour of the fallen, please give me your mercy. You are the saviour of the lowly fallen souls. All glories to you Śrī Gurudeva.
 
-
-> verse parentheses = non bold
-
-> page = 80

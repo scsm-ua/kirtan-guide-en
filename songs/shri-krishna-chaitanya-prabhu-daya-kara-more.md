@@ -1,3 +1,8 @@
+---
+page: 82
+first_line: śrī kṛṣṇa chaitanya prabhu dayā kara more
+---
+
 # Sāvaraṇa-Śrī-Gaura-pāda-padme
 # Prārthanā
 
@@ -62,5 +67,3 @@ Kindly give Your Grace, Śrīla Prabhupād Saraswatī Ṭhākur, manifestation o
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-savarana-sri-gaura-pada-padme-sri-krishna-chaitanya-prabhu-doya-koro-more)
 
-
-> page = 82

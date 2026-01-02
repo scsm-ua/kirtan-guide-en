@@ -1,3 +1,8 @@
+---
+page: 38
+first_line: jaya jaya girirājer ārotiko śobhā
+---
+
 # Śrī Śrī Girirāj-
 # Govardhan Ārati
 
@@ -80,5 +85,3 @@ The beauty of the ārati of Śrī Girirāj Jīu which is rare and precious is be
 
 Śrī Śrī Girirāj Jīu is eternally manifested as both the worshipable Lord and the servitor Lord. This fallen servant sees the *ārati* of Śrī Girirāj Jīu with great ecstasy.
 
-
-> page = 38

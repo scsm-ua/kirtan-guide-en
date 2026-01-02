@@ -1,3 +1,8 @@
+---
+page: 15
+first_line: namo gaurakiśorāya bhaktāvadhūta mūrtaye
+---
+
 # Śrīla Gaura Kiśora Dās Bābājī Mahārāj
 
 ### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
@@ -12,5 +17,3 @@ the pure devotee beyond social class;\
 the bee in the lotus of the feet of Śrī Gaurāṅga,\
 who deep in his heart serves Śrī Rādhā forever.”
 
-
-> page = 15

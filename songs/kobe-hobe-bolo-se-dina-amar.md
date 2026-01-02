@@ -1,3 +1,8 @@
+---
+page: 198
+first_line: kobe ho’be bolo se-dina āmār
+---
+
 # Kobe ho’be bolo
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -76,5 +81,3 @@ When will there be an awakening of compassion for all fallen souls, and when wil
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-kabe-habe-bolo-acapella-1)
 
-
-> page = 198

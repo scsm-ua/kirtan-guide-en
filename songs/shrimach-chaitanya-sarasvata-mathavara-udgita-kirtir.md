@@ -1,5 +1,7 @@
 ---
+page: 24
 author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+first_line: śrīmach-chaitanya-sārasvata-maṭhavara-udgīta-kīrtir
 ---
 
 # The Glory of the Śrī Chaitanya Sāraswat Maṭh
@@ -59,4 +61,3 @@ bearing that banner of all transcendental benedictions,\
 &nbsp;&nbsp;&nbsp;&nbsp;Śrī Chaitanya Sāraswat Maṭh ever shines resplendent\
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in all its divine magnificence.
 
-> page = 24

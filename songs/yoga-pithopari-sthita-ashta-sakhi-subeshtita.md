@@ -1,8 +1,13 @@
+---
+page: 234
+first_line: yoga-pīṭhopari-sthita, aṣṭa-sakhī-subeṣṭita
+---
+
 # Śrī Śikṣāṣṭakam
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 8b
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 #### 1
 
@@ -63,5 +68,3 @@ Bhakti Vinod knows nothing else. Falling at the feet of the sakhī, Bhakti Vinod
 
 Footnote to Song 8b: *Śrīla Śrīdhar Mahārāja advised not to sing this song because it’s “too high.”*
 
-
-> page = 234

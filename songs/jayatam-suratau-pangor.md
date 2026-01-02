@@ -1,5 +1,7 @@
 ---
+page: 19
 author: Śrīla Rūpa Goswāmī
+first_line: jayatāṁ suratau paṅgor
 ---
 
 # Śrī-Śrī-Guru-Gaurāṅga-Rādhā-Madana-Mohanjīu
@@ -13,5 +15,3 @@ author: Śrīla Rūpa Goswāmī
 
 O Śrī Śrī Rādhā-Madana-mohan, I am a helpless cripple and my meagre intelligence is absorbed in the vile material sense objects. Kindly let deep devotional attachment arise for the exclusive wealth of my life which is Your lotus feet. May Your Lordships, who are so compassionate and affectionate, be forever victorious!
 
-
-> page = 19

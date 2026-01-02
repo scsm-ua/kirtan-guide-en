@@ -1,3 +1,8 @@
+---
+page: 130
+first_line: nitāi guṇamaṇi āmāra nitāi guṇamaṇi
+---
+
 # Nitāi guṇamaṇi āmāra
 
 ### by Śrīla Lochan Dās Ṭhākur
@@ -37,5 +42,3 @@ The ocean of mercy had formerly been tightly sealed, but Lord Nitāi cut a chann
 
 Lochan Dās says, “Whoever has not worshipped this Lord Nitāi, or accepted the great gift offered by Him, that person knowingly commits suicide.”
 
-
-> page = 130

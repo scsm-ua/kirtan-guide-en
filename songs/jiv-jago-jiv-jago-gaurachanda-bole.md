@@ -1,3 +1,8 @@
+---
+page: 55
+first_line: jīv jāgo, jīv jāgo, gaurāchā̐da bole
+---
+
 # Aruṇodoya-kīrtan
 
 ## Part 2
@@ -39,5 +44,3 @@ Lord Gaurāṅga calls, “Wake up, sleeping souls! Wake up, sleeping souls! You
 
 Ṭhākur Bhakti Vinod fell at the lotus feet of Lord Gaurāṅga, and after begging for the Holy Name he received that *mahāmantra*.
 
-
-> page = 55

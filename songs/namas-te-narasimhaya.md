@@ -1,5 +1,7 @@
 ---
+page: 271
 author: Śrīla Jayadeva Goswāmī
+first_line: namas te narasiṁhāya
 ---
 
 # Śrī Nṛsiṁha Praṇām
@@ -31,5 +33,3 @@ Oh Keśava! Oh Lord of the universe! Oh Lord Hari, who have assumed the form of 
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-sri-nrsimha-pranam-namas-te-narisimhaya)
 
-
-> page = 271

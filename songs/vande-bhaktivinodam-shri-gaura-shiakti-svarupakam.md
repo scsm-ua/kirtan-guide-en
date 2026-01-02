@@ -1,3 +1,8 @@
+---
+page: 16
+first_line: vande bhaktivinodaṁ śrī-gaura-śakti-svarūpakam
+---
+
 # Śrīla Bhakti Vinod Ṭhākur
 
 ### by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
@@ -14,5 +19,3 @@ of the purpose of the Scriptures,\
 and he is the ocean\
 of Śrī Rādhā’s devotion.”
 
-
-> page = 16

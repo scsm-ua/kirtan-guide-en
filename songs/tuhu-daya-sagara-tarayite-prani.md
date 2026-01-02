@@ -1,8 +1,13 @@
+---
+page: 218
+first_line: tuhu̐ dayā-sāgara tārayite prāṇī
+---
+
 # Śrī Śikṣāṣṭakam
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 2
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 The second verse of the Śrī Śikṣāṣṭakam is as follows:
 
@@ -51,5 +56,3 @@ I have never known any attraction for the Holy Names. And so, the heart of Bhakt
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/tuhu-doya-sagara-tarayite-prani)
 
-
-> page = 218

@@ -1,3 +1,9 @@
+---
+verse parentheses: non bold
+page: 60
+first_line: bhaja re bhaja re āmār mana ati manda
+---
+
 # Bhajan-gīti
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -52,7 +58,3 @@ You should remember Śrīla Kavi Karṇapura and all his family members, who are
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-bhajan-giti-bhaja-re-bhaja-re-amar)
 
-
-> verse parentheses = non bold
-
-> page = 60

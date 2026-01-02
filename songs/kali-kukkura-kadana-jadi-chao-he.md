@@ -1,3 +1,8 @@
+---
+page: 48
+first_line: kali-kukkura-kadana jadi chāo he
+---
+
 # Prabhāti Gīti
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -46,5 +51,3 @@ He purified Sārvabhauma Bhaṭṭāchārya and rescued Pratāparudra Maharaj, t
 
 Śrī Krishna Chaitanya is absorbed in the mellows of Vṛndāvan. He removes the filthy thoughts of the mind, destroying lust and deceit. He drives away dry empiric knowledge which obscures the beauty of pure devotion. He is the protector, maintainer and constant guardian of His pure devotees.
 
-
-> page = 48

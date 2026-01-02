@@ -1,3 +1,8 @@
+---
+page: 36
+first_line: jaya jaya girirājer ārati viśāla
+---
+
 # Śrī Govinda Kuṇḍa
 # Gupta-Govardhan Ārati
 
@@ -73,5 +78,3 @@ By Your inconceivable glories and magnanimity, You have manifested Kuliyā (wher
 
 You are eternally manifested both as the worshipable Lord and as the servitor Lord. This fallen servant sees Your ārati with great joy.
 
-
-> page = 36

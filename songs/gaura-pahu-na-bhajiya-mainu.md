@@ -1,3 +1,8 @@
+---
+page: 135
+first_line: gaurā pahu̐ nā bhajiyā mainu
+---
+
 # Gaurā Pahu̐
 
 ### by Śrīla Narottam Dās Ṭhākur
@@ -37,5 +42,3 @@ I have perpetually drunk the horrible poison of material sense gratification and
 
 O why has my heart not experienced any satisfaction and why has Narottam Dās not simply perished?
 
-
-> page = 135

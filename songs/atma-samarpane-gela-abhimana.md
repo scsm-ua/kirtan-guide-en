@@ -1,3 +1,8 @@
+---
+page: 196
+first_line: ātma-samarpaṇe gelā abhimāna
+---
+
 # Ātma-samarpaṇe
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -75,5 +80,3 @@ Bhakti Vinod is now the property of Gokul, Your holy abode. Oh Keśava! Kindly p
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/atma-samarpane-bhakti-lalita-devi)
 
-
-> page = 196

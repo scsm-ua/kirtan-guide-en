@@ -1,3 +1,8 @@
+---
+page: 53
+first_line: udilo aruṇa pūraba-bhāge
+---
+
 # Aruṇodoya-kīrtan
 
 ## Part 1
@@ -76,5 +81,3 @@ Drink the pure nectar of the Holy Name of Krishna, and thus satisfy the soul of 
 
 To penetrate the darkness of ignorance and bless all souls within this universe, the beautiful Name of Krishna has arisen like the shining sun.
 
-
-> page = 53

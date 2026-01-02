@@ -1,3 +1,8 @@
+---
+page: 256
+first_line: kṛṣṇa hoite chatur-mukha
+---
+
 # Śrī Guru-paramparā
 
 ### Verses 1-9 composed by Śrīla Saraswati Ṭhākur
@@ -101,5 +106,3 @@ The nondifferent personality and embodiment of bhakti-siddhānta as well as Śr�
 
 He who is a very dear disciple of that Śrīla Śrīdhar Dev-Goswāmī Mahārāj, and who is establishing his divine conception, and who is fulfilling his desire continuously, he is Śrīla Bhakti Sundar Govinda Dev-Goswāmī. This is our grand preceptorial line and all of them are very dear to Śrī Chaitanya Mahāprabhu. My sustenance is their remn ∂ ants alone.
 
-
-> page = 256

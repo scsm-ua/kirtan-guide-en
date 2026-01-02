@@ -1,8 +1,13 @@
+---
+page: 222
+first_line: prabhu tava pada-juge mora nivedana
+---
+
 # Śrī Śikṣāṣṭakam
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 4
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 The fourth verse of the Śrī Śikṣāṣṭakam is as follows:
 
@@ -65,5 +70,3 @@ Whether I live as bird or beast, in heaven or in hell, let the humble Bhakti Vin
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/prabhu-tava-pada-juge)
 
-
-> page = 222

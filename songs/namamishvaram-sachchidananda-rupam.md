@@ -1,3 +1,8 @@
+---
+page: 272
+first_line: namāmīśvaraṁ sachchidānanda rūpaṁ
+---
+
 # Śrī Śrī Dāmodarāṣṭakam
 
 ### by Śrī Satyavrat Muni
@@ -77,5 +82,3 @@ O Lord Dāmodar, I first of all offer my obeisances to the brilliantly effulgent
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-damodarastakam-happy-motif)
 
-
-> page = 272

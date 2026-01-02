@@ -1,3 +1,8 @@
+---
+page: 52
+first_line: gurudeva! kṛpā-bindu diyā, kara’ ei dāse
+---
+
 # Gurudeva
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -39,5 +44,3 @@ Oh my Lord! When will such mercy fall to this person. I am weak, bereft, and dev
 
 If you examine me, you will find no qualities. Your mercy is everything to me. If you are not merciful unto me, I can only weep, and I will not be able to maintain my life.
 
-
-> page = 52

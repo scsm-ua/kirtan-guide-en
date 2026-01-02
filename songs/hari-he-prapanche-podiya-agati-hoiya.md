@@ -1,3 +1,8 @@
+---
+page: 184
+first_line: hari he! prapañche poḍiyā, agati hoiyā
+---
+
 # Bhajan-Lālasā
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -39,5 +44,3 @@ The powerful urges of speech, mind, anger, tongue, belly, and genitals have band
 
 After numerous endeavours to subdue these material demands, I have completely given up all hope. Oh Lord of the destitute! I call upon Your Holy Name, for now You are my only hope.
 
-
-> page = 184

@@ -1,3 +1,8 @@
+---
+page: 240
+first_line: rādhākuṇḍataṭa-kuñjakuṭīra
+---
+
 # Rādhā-kuṇḍataṭa-kuñja-kuṭīra
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -58,5 +63,3 @@ I can never leave all these things so dear to me, Without them I know I’ll sur
 
 Hear me, O Kāna, says Śrī Bhakti Vinod: You are the only light of my life.
 
-
-> page = 240

@@ -1,8 +1,13 @@
+---
+page: 230
+first_line: gāite ‘govinda’-nām, upajilo bhāva-grām
+---
+
 # Śrī Śikṣāṣṭakam
 
-### by Śrīla Bhakti Vinod Ṭhākur
-
 ## Song 7b
+
+### by Śrīla Bhakti Vinod Ṭhākur
 
 #### 1
 
@@ -25,5 +30,3 @@ On seeing this, my mind was stunned. I lost my senses. Unaware of time, I fainte
 
 [Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/gaite-govinda-nam)
 
-
-> page = 230

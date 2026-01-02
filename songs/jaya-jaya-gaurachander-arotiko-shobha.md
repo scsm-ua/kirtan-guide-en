@@ -1,3 +1,9 @@
+---
+verse parentheses: non bold
+page: 73
+first_line: (kiba) jaya jaya gaurāchā̐der ārotiko śobhā
+---
+
 # Śrī Gaura-ārati
 
 ### by Śrīla Bhakti Vinod Ṭhākur
@@ -76,6 +82,3 @@ Lord Shiva, Śukadeva Goswāmī and Nārada Muni are all present and their voice
 
 This time please give me your grace. Oh Śrī Bhakti Vinod, Śrī Saraswatī Ṭhākur, Oh Gurudeva, saviour of the fallen, Oh Lord Gaurahari along with Your associates, this time please give me Your grace.
 
-> verse parentheses = non bold
-
-> page = 73

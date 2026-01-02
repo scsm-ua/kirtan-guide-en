@@ -1,3 +1,8 @@
+---
+page: 136
+first_line: avatāra sāra gorā avatāra
+---
+
 # Avatāra Sāra
 
 ### by Śrīla Lochan Dās Ṭhākur
@@ -47,5 +52,3 @@ Admitting defeat, wasted and worn out, I await the snake of death. Declaring it 
 
 Worshipping my family and my material life, I forgot Lord Gaurāṅga and didn’t listen to the instructions of the saints. Now in my final days, I realise I have died twice, for not only am I leaving this mortal body, but I am also dead while living, having wasted my life in material indulgence.
 
-
-> page = 136

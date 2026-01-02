@@ -1,3 +1,8 @@
+---
+page: 144
+first_line: vimala hemajin tanu anupama re!
+---
+
 # Vimala hemajini
 
 ### by Śrīla Vṛndāvan Dās Ṭhākur
@@ -38,5 +43,3 @@ Overcome, Lord Gauracandra has no power to walk. Now He has no power to speak. H
 
 Alas! At that blissful fortunate time I did not worship Lord Gaura. I did not yearn to attain His feet. In this way Vṛndāvan das sings the glories of Lord Caitanyachandra and Lord Nityānanda.
 
-
-> page = 144

@@ -1,5 +1,7 @@
 ---
+page: 26
 no-author: 1
+first_line: jaya sa-parikara
 ---
 
 # Jaya Dhvani
@@ -86,5 +88,3 @@ no-author: 1
 
     nitāi-gaura-premānande haribol!
 
-
-> page = 26
