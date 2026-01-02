@@ -9,7 +9,7 @@ importers:
   .:
     dependencies:
       songbook-md-json-parser:
-        specifier: github:scsm-ua/songbook-md-json-parser#v1.3.0
+        specifier: github:scsm-ua/songbook-md-json-parser
         version: https://codeload.github.com/scsm-ua/songbook-md-json-parser/tar.gz/2cd68be005d5d2f132745d92c4a82a983811005d
 
 packages:
