@@ -1,6 +1,7 @@
 ---
 page: 193
 first_line: tātala saikate vāri bindu-sama
+author: Śrīla Vidyāpati
 ---
 
 # Tātala Saikate

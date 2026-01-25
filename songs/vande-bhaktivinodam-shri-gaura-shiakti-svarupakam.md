@@ -1,6 +1,7 @@
 ---
 page: 16
 first_line: vande bhaktivinodaṁ śrī-gaura-śakti-svarūpakam
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrīla Bhakti Vinod Ṭhākur

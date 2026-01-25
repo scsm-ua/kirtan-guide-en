@@ -1,6 +1,7 @@
 ---
 page: 82
 first_line: śrī kṛṣṇa chaitanya prabhu dayā kara more
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Sāvaraṇa-Śrī-Gaura-pāda-padme

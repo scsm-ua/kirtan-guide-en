@@ -1,6 +1,7 @@
 ---
 page: 40
 first_line: jaya guru mahārāja karuṇā-sāgara
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Śrī Nitāi-Chaitanya-Ārati

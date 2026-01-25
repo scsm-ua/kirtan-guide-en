@@ -1,6 +1,7 @@
 ---
 page: 228
 first_line: gāite gāite nāma ki dośā hoilo
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Śikṣāṣṭakam

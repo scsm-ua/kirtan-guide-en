@@ -1,6 +1,7 @@
 ---
 page: 66
 first_line: hari haraye namaḥ kṛṣṇa yādavāya namaḥ
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Nām-saṅkīrtan

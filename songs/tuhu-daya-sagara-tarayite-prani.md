@@ -1,6 +1,7 @@
 ---
 page: 218
 first_line: tuhu̐ dayā-sāgara tārayite prāṇī
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Śikṣāṣṭakam

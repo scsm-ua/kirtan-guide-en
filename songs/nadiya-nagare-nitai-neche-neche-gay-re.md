@@ -1,6 +1,7 @@
 ---
 page: 275
 first_line: nadīyā-nagare nitāi neche neche gāy re
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrīman Mahāprabhur śata-nāma

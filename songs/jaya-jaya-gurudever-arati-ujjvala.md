@@ -1,6 +1,7 @@
 ---
 page: 42
 first_line: jaya jaya gurudever ārati ujjvala
+author: Śrīpād B. A. Paramahaṁsa Mahārāj
 ---
 
 # Śrī Guru Ārati

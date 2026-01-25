@@ -1,6 +1,7 @@
 ---
 page: 242
 first_line: he deva bhavantaṁ vande
+author: Śrīla Rūpa Goswāmī
 ---
 
 # He deva bhavantaṁ vande

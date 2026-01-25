@@ -1,6 +1,7 @@
 ---
 page: 144
 first_line: ke jabi ke jabi bhāi bhava-sindhu pāra
+author: Śrīla Lochan Dās Ṭhākur
 ---
 
 # Ke jabi ke jabi

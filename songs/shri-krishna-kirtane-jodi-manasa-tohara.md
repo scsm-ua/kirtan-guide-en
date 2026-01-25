@@ -1,6 +1,7 @@
 ---
 page: 220
 first_line: śrī-kṛṣṇa-kīrtane jodi mānasa tohāra
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Śikṣāṣṭakam

@@ -1,6 +1,7 @@
 ---
 page: 38
 first_line: jaya jaya girirājer ārotiko śobhā
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Śrī Girirāj-

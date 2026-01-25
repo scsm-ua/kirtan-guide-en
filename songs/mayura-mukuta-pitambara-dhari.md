@@ -1,6 +1,7 @@
 ---
 page: 243
 first_line: mayura-mukuṭa pītāmbara-dhārī
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Mayura mukuṭa

@@ -1,6 +1,7 @@
 ---
 page: 135
 first_line: gaurā pahu̐ nā bhajiyā mainu
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Gaurā Pahu̐

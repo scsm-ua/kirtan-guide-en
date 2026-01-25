@@ -1,6 +1,7 @@
 ---
 page: 245
 first_line: rādhā-kṛṣṇa prāṇa mora jugala-kiśora
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Sakhi-vṛnde Vijñaptiḥ

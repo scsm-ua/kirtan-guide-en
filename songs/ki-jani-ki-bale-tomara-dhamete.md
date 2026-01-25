@@ -1,6 +1,7 @@
 ---
 page: 180
 first_line: ki jāni ki bale, tomāra dhāmete
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Goptṛtve Varaṇa

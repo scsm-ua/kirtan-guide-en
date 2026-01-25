@@ -1,6 +1,7 @@
 ---
 page: 316
 first_line: śrīmach-chaitanyapādau chara
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrīmad Rūpa-pada-rajaḥ Prārthanā Daśakam

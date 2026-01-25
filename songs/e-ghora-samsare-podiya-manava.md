@@ -1,6 +1,7 @@
 ---
 page: 171
 first_line: e ghora saṁsāre, poḍiyā mānava
+author: Kālidās
 ---
 
 # E ghora saṁsare

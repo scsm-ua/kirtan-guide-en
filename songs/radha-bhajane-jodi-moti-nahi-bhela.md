@@ -1,6 +1,7 @@
 ---
 page: 238
 first_line: rādhā-bhajane jodi moti nāhi bhelā
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Rādhāṣṭaka

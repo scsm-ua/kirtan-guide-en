@@ -1,6 +1,7 @@
 ---
 page: 240
 first_line: rādhākuṇḍataṭa-kuñjakuṭīra
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Rādhā-kuṇḍataṭa-kuñja-kuṭīra

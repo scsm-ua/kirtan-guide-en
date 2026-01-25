@@ -1,6 +1,7 @@
 ---
 page: 342
 first_line: nava-nalina-gañjitaṁ kusuma-dala
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
 # Praṇati-Pañchakam

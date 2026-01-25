@@ -1,6 +1,7 @@
 ---
 page: 185
 first_line: hari hari! biphole janama goyāinu
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Iṣṭa-deve Vijñapti

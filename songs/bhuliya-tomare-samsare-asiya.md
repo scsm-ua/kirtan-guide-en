@@ -1,6 +1,7 @@
 ---
 page: 182
 first_line: bhuliyā tomāre, saṁsāre āsiyā
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Dainya

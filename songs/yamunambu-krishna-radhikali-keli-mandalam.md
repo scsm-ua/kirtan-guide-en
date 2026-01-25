@@ -1,6 +1,7 @@
 ---
 page: 122
 first_line: yāmunāmbu-kṛṣṇa-rādhikāli-keli-maṇḍalam
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Śrī

@@ -1,6 +1,7 @@
 ---
 page: 252
 first_line: śrita-kamalā-kuchha-maṇḍala dhṛta
+author: Śrīla Jayadeva Goswāmī
 ---
 
 # Śrita Kamalā

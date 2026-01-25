@@ -1,6 +1,7 @@
 ---
 page: 78
 first_line: namo namaḥ tulasī mahārāṇī
+author: Śrīla Chandraśekhara Kavi
 ---
 
 # Śrī Tulasī-parikramā-gīti

@@ -1,6 +1,7 @@
 ---
 page: 206
 first_line: śrī-rūpa-mañjarī-pada, sei mora sampada
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Śrī-Rūpa-Mañjarī-pada

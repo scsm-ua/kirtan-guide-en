@@ -1,6 +1,7 @@
 ---
 page: 343
 first_line: mahā-bhaya śaṅkula e bhava taraṅginī
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
 # Māyā Duratyayā

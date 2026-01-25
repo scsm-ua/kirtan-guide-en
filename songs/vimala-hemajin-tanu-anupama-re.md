@@ -1,6 +1,7 @@
 ---
 page: 144
 first_line: vimala hemajin tanu anupama re!
+author: Śrīla Vṛndāvan Dās Ṭhākur
 ---
 
 # Vimala hemajini

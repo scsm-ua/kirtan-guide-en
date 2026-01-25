@@ -1,6 +1,7 @@
 ---
 page: 68
 first_line: bhaja bhakata-vatsala śrī-gaurahari
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Bhog Ārati Gīti

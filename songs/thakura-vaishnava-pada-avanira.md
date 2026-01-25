@@ -1,6 +1,7 @@
 ---
 page: 156
 first_line: ṭhākura-vaiṣṇava-pada, avanīra
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Ṭhākura-vaiṣṇava-pada

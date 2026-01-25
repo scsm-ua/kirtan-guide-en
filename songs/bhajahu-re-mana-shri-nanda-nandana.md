@@ -1,6 +1,7 @@
 ---
 page: 169
 first_line: bhajahu̐ re mana śrī-nanda-nandana
+author: Śrīla Govinda Dās Kavirāj
 ---
 
 # Bhajahu̐ Re Mana

@@ -1,6 +1,7 @@
 ---
 page: 311
 first_line: nīte yasmin niśānte nayana-jala-bharaiḥ
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Śrī Dayita Dās Daśakam

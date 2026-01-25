@@ -1,6 +1,7 @@
 ---
 page: 36
 first_line: jaya jaya girirājer ārati viśāla
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Govinda Kuṇḍa

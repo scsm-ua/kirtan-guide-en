@@ -1,6 +1,7 @@
 ---
 page: 140
 first_line: kali-ghora timire garasala jagajana
+author: Śrīla Nayanānanda Dās
 ---
 
 # Kali-ghora timire

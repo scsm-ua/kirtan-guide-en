@@ -1,6 +1,7 @@
 ---
 page: 77
 first_line: kobe śrī chaitanya more-koribena dayā
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Dainya Prārthanā Gīti

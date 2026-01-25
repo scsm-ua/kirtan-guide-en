@@ -1,6 +1,7 @@
 ---
 page: 128
 first_line: nitāi-pada-kamala, koṭī-chandra-suśītala
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Manaḥ-Śikṣā

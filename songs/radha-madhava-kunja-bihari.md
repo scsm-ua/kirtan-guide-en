@@ -1,6 +1,7 @@
 ---
 page: 243
 first_line: (jaya) rādhā-mādhava (jaya) kuñja-bihārī
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Jaya Rādhā-Mādhava

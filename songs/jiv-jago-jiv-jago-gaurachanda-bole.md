@@ -1,6 +1,7 @@
 ---
 page: 55
 first_line: jīv jāgo, jīv jāgo, gaurāchā̐da bole
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Aruṇodoya-kīrtan

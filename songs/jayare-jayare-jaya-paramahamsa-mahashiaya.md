@@ -1,6 +1,7 @@
 ---
 page: 262
 first_line: jayare jayare jaya paramahaṁsa mahāśaya
+author: Gopāl Govinda Mahanta
 ---
 
 # Āchārya vandana

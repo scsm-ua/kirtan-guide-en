@@ -1,6 +1,7 @@
 ---
 page: 157
 first_line: je ānilo prema-dhana karuṇā prachura
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Viraha-gīti

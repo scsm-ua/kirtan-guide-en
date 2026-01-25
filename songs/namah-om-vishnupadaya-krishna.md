@@ -1,6 +1,7 @@
 ---
 page: 23
 first_line: namaḥ om viṣṇupādaya kṛṣṇa
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
 # Praṇām Mantra

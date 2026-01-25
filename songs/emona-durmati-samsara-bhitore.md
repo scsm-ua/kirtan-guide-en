@@ -1,6 +1,7 @@
 ---
 page: 178
 first_line: emona durmati, saṁsāra bhitore
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Dainyātmikā

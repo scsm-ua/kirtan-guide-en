@@ -1,6 +1,7 @@
 ---
 page: 168
 first_line: ki-rūpe pāibo sevā mui durāchāra
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Ki-rūpe pāibo sevā

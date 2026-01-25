@@ -1,6 +1,7 @@
 ---
 page: 48
 first_line: kali-kukkura-kadana jadi chāo he
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Prabhāti Gīti

@@ -1,6 +1,7 @@
 ---
 page: 188
 first_line: āmāra jīvana, sadā pāpe rata
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Āmāra jīvana

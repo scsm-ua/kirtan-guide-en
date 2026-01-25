@@ -1,6 +1,7 @@
 ---
 page: 95
 first_line: sūtra-vṛtti-ṭippanīṣṭa-sūkṣma-vāchanādbhutaṁ
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Śrī

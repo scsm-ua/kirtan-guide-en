@@ -2,6 +2,7 @@
 verse parentheses: non bold
 page: 301
 first_line: ‘hari’ bole’ modera gaura elo
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Nagara Kīrtana 8

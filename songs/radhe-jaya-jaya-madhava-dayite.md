@@ -1,6 +1,7 @@
 ---
 page: 241
 first_line: rādhe jaya jaya mādhava-dayite
+author: Śrīla Rūpa Goswāmī
 ---
 
 # Śrī Rādhikā-stava

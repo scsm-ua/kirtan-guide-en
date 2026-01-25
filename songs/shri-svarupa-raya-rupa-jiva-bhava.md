@@ -1,6 +1,7 @@
 ---
 page: 332
 first_line: śrī-svarūpa-rāya-rūpa jīva-bhāva
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
 # Praṇām Mantra

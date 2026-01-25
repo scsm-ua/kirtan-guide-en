@@ -1,6 +1,7 @@
 ---
 page: 256
 first_line: kṛṣṇa hoite chatur-mukha
+author: Śrīla Saraswati Ṭhākur
 ---
 
 # Śrī Guru-paramparā

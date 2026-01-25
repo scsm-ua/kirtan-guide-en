@@ -1,6 +1,7 @@
 ---
 page: 251
 first_line: jaya yaśodā-nandana kṛṣṇa gopāla govinda
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Jaya Yaśodā-Nandana Kṛṣṇa

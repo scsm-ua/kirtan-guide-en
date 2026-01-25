@@ -1,6 +1,7 @@
 ---
 page: 290
 first_line: chaudda-śata sāta-śake māsa je phālgun
+author: Śrīla Kṛṣṇadās Kavirāj Goswāmī
 ---
 
 # Śrī Gaura Purṇīmā

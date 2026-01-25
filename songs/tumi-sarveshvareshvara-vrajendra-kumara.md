@@ -1,6 +1,7 @@
 ---
 page: 190
 first_line: tumi sarveśvareśvara, vrajendra-kumāra!
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Tumi sarveśvareśvara

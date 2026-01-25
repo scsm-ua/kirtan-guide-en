@@ -1,6 +1,7 @@
 ---
 page: 337
 first_line: devādidevam-ahibhūṣaṇam-indukāśaṁ
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
 # Gaṅgadhara Sadāśiva Praṇām-Mantram

@@ -1,6 +1,7 @@
 ---
 page: 196
 first_line: ātma-samarpaṇe gelā abhimāna
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Ātma-samarpaṇe

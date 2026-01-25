@@ -1,6 +1,7 @@
 ---
 page: 32
 first_line: nija-pati-bhuja-daṇḍa-chchhatra-bhāvaṁ
+author: Śrīla Raghunāth Dās Goswāmī Prabhu.
 ---
 
 # Śrī Śrī Govardhana-vāsa-prārthanā-daśakam

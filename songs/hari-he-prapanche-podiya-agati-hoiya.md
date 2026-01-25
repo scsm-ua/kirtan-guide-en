@@ -1,6 +1,7 @@
 ---
 page: 184
 first_line: hari he! prapañche poḍiyā, agati hoiyā
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Bhajan-Lālasā

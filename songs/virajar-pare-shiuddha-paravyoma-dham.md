@@ -1,6 +1,7 @@
 ---
 page: 237
 first_line: virajār pāre śuddha-paravyoma-dhām
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Rādhāṣṭaka

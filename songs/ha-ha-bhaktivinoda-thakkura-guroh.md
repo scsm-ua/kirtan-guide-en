@@ -1,6 +1,7 @@
 ---
 page: 303
 first_line: hā hā bhaktivinoda-ṭhakkura! guroḥ!
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrīmad Bhakti Vinod-viraha Daśakam

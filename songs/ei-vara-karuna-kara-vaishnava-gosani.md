@@ -1,6 +1,7 @@
 ---
 page: 158
 first_line: ei-vāra karuṇā kara vaiṣṇava gosāñi
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Vaiṣṇava Vijñāpti

@@ -1,6 +1,7 @@
 ---
 page: 236
 first_line: rādhikā-charaṇa-padma, sakala śreyera
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Rādhāṣṭaka

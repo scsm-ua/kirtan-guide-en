@@ -1,6 +1,7 @@
 ---
 page: 224
 first_line: anādi karama-phole
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Śikṣāṣṭakam

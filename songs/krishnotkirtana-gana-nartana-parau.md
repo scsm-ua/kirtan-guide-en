@@ -1,6 +1,7 @@
 ---
 page: 162
 first_line: kṛṣṇotkīrtana-gāna-nartana-parau
+author: Śrīla Śrīnivās Āchārya
 ---
 
 # Śrī Śrī Ṣaḍ-Gosvāmy-aṣṭakam

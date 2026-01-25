@@ -1,6 +1,7 @@
 ---
 page: 231
 first_line: sakhi go kemote dhoribo parāṇ
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Śikṣāṣṭakam

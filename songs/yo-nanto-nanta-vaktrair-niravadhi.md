@@ -1,6 +1,7 @@
 ---
 page: 322
 first_line: yo ’nanto ’nanta-vaktrair niravadhi
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrīman Nityānanda Dvādaśakam

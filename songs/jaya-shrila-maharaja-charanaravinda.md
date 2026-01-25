@@ -1,6 +1,7 @@
 ---
 page: 254
 first_line: jaya śrīla mahārāja charaṇāravinda
+author: Śrīpād Bhakti Ānanda Sāgar Mahārāj
 ---
 
 # Āchārya-charaṇa-vandana

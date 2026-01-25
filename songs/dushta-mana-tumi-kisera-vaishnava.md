@@ -1,6 +1,7 @@
 ---
 page: 172
 first_line: duṣṭa mana! tumi kisera vaiṣṇava?
+author: Śrīla Bhakti Siddhānta Saraswatī Ṭhākur
 ---
 
 # Vaiṣṇava Ke?

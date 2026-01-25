@@ -1,6 +1,7 @@
 ---
 page: 299
 first_line: prabhu kohe—kohilaṅ ei mahāmantra
+author: Śrīla Vṛndāvan Dās Ṭhākur
 ---
 
 # Prabhu kohe

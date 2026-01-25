@@ -1,6 +1,7 @@
 ---
 page: 15
 first_line: namo gaurakiśorāya bhaktāvadhūta mūrtaye
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrīla Gaura Kiśora Dās Bābājī Mahārāj

@@ -1,6 +1,7 @@
 ---
 page: 134
 first_line: gaurāṅgera duṭi pada, jār dhana sampada
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Sāvaraṇa-Śrī-Gaura-mahimā

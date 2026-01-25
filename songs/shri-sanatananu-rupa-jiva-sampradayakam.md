@@ -1,6 +1,7 @@
 ---
 page: 117
 first_line: śrī-sanātanānu-rūpa-jīva-sampradāyakaṁ
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Śrī

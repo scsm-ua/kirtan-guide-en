@@ -1,6 +1,7 @@
 ---
 page: 230
 first_line: gāite ‘govinda’-nām, upajilo bhāva-grām
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Śikṣāṣṭakam

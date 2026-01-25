@@ -1,6 +1,7 @@
 ---
 page: 142
 first_line: emona gaurāṅga bine nāhi āra
+author: Śrīla Premānanda Dās
 ---
 
 # Emona Gaurāṅga bine nāhi āra

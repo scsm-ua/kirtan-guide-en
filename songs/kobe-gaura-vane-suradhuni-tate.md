@@ -1,6 +1,7 @@
 ---
 page: 139
 first_line: kobe gaura-vane, suradhunī-taṭe
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Siddhi-Lālasā

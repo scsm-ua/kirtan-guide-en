@@ -1,6 +1,7 @@
 ---
 page: 52
 first_line: gurudeva! kṛpā-bindu diyā, kara’ ei dāse
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Gurudeva

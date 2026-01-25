@@ -1,6 +1,7 @@
 ---
 page: 226
 first_line: aparādha-phole mama
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Śikṣāṣṭakam

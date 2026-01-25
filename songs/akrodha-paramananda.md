@@ -1,6 +1,7 @@
 ---
 page: 131
 first_line: akrodha paramānanda
+author: Śrīla Lochan Dās Ṭhākur
 ---
 
 # Akrodha paramānanda

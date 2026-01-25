@@ -1,6 +1,7 @@
 ---
 page: 216
 first_line: pīta-varaṇa kali-pāvana gorā
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Śikṣāṣṭakam

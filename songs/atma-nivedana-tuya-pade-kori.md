@@ -1,6 +1,7 @@
 ---
 page: 186
 first_line: ātma-nivedana, tuyā pade kori
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Ātma-nivedana

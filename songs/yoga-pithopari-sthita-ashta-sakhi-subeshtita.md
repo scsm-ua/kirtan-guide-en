@@ -1,6 +1,7 @@
 ---
 page: 234
 first_line: yoga-pīṭhopari-sthita, aṣṭa-sakhī-subeṣṭita
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Śikṣāṣṭakam

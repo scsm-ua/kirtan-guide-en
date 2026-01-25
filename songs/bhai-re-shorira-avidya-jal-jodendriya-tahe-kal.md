@@ -1,6 +1,7 @@
 ---
 page: 72
 first_line: bhāi-re! śorīra avidyā-jāl, joḍendriya tāhe kāl
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Prasāda-sevāya Gīti

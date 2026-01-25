@@ -1,6 +1,7 @@
 ---
 page: 159
 first_line: kṛpa kara’ vaiṣṇava ṭhākura
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Prārthanā Lalasāmayi

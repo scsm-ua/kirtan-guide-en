@@ -1,6 +1,7 @@
 ---
 page: 166
 first_line: ohe harinām, tava mahimā apāra
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Nāmāṣṭakam 7

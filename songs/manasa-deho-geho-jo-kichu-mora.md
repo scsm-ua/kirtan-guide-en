@@ -1,6 +1,7 @@
 ---
 page: 170
 first_line: mānasa, deho, geho, jo kichū mora
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Mānasa Deho Geho

@@ -1,6 +1,7 @@
 ---
 page: 86
 first_line: sujanārvuda-rādhita-pāda-yugaṁ
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Śrī Prabhupāda-padma

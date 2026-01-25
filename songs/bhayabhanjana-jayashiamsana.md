@@ -1,6 +1,7 @@
 ---
 page: 260
 first_line: bhayabhañjana jayaśaṁsana
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Dayita Dās

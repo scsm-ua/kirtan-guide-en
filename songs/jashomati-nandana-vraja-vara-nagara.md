@@ -1,6 +1,7 @@
 ---
 page: 49
 first_line: jaśomatī-nandana vraja-vara nāgara
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Nām-kīrtan

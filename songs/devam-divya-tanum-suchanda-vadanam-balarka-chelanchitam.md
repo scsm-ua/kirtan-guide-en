@@ -1,6 +1,7 @@
 ---
 page: 13
 first_line: devaṁ divya-tanuṁ suchanda-vadanaṁ-bālārka-chelāñchitaṁ
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
 # Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj

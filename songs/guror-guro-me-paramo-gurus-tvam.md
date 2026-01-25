@@ -1,6 +1,7 @@
 ---
 page: 308
 first_line: guror guro me paramo gurus tvaṁ
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Śrīmad Gaura-Kiśora-

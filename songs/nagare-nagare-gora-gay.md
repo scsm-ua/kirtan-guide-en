@@ -1,6 +1,7 @@
 ---
 page: 280
 first_line: nagare nagare gorā gāy
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Kṛṣṇera

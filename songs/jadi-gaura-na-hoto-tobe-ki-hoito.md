@@ -1,6 +1,7 @@
 ---
 page: 141
 first_line: jadi gaura nā ho’to, tobe ki hoito
+author: Śrīla Vāsudeva Ghoṣa
 ---
 
 # Jadi Gaura nā ho’to

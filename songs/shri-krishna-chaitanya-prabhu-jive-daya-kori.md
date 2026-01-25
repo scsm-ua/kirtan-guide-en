@@ -1,6 +1,7 @@
 ---
 page: 58
 first_line: śrī-kṛṣṇa-chaitanya prabhu jīve dayā kori’
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Auspicious Invocation

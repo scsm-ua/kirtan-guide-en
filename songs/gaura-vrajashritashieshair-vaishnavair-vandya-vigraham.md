@@ -1,6 +1,7 @@
 ---
 page: 17
 first_line: gaura-vrajāśritāśeṣair vaiṣṇavair vandya-vigraham
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrīla Jagannāth Dās Bābājī Mahārāj

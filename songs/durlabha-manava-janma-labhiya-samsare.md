@@ -1,6 +1,7 @@
 ---
 page: 209
 first_line: durlabha mānava-janma labhiyā saṁsāre
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Durlabha mānava-janma

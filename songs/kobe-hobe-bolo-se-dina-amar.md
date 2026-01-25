@@ -1,6 +1,7 @@
 ---
 page: 198
 first_line: kobe ho’be bolo se-dina āmār
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Kobe ho’be bolo

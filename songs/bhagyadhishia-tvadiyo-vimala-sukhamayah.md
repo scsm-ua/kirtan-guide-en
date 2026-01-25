@@ -1,6 +1,7 @@
 ---
 page: 338
 first_line: bhāgyādhīśa! tvadīyo vimala-sukhamayaḥ
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Guru-Praśastiḥ

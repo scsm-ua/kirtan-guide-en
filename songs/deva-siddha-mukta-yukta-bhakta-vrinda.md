@@ -1,6 +1,7 @@
 ---
 page: 90
 first_line: deva-siddha-mukta-yukta-bhakta-vṛnda
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Śrī

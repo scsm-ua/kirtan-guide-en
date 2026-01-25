@@ -1,6 +1,7 @@
 ---
 page: 100
 first_line: dhvasta-sārvvabhauma-vāda-navya-tarka-śāṅkaraṁ
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Śrī

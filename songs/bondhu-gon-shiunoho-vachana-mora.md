@@ -1,6 +1,7 @@
 ---
 page: 232
 first_line: bondhu-goṇ! śunoho vachana mora
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Śikṣāṣṭakam

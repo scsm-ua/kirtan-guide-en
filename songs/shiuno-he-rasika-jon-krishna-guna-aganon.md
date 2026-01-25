@@ -1,6 +1,7 @@
 ---
 page: 250
 first_line: śuno, he rasika jon kṛṣṇa guṇa agaṇon
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Guṇa-Kīrtan

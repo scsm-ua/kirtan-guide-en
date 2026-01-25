@@ -1,6 +1,7 @@
 ---
 page: 136
 first_line: avatāra sāra gorā avatāra
+author: Śrīla Lochan Dās Ṭhākur
 ---
 
 # Avatāra Sāra

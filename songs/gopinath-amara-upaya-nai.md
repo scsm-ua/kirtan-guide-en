@@ -1,6 +1,7 @@
 ---
 page: 204
 first_line: gopīnāth, āmāra upāya nāi
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Nivedana

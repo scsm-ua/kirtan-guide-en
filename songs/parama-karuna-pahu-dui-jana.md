@@ -1,6 +1,7 @@
 ---
 page: 132
 first_line: parama karuṇa, pahu̐ dūi jana
+author: Śrīla Lochan Dās Ṭhākur
 ---
 
 # Śrī Śrī Gaura-Nityānander Dayā

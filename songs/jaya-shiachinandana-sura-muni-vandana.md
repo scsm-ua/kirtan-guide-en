@@ -1,6 +1,7 @@
 ---
 page: 50
 first_line: jaya śachīnandana sura-muni-vandana
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Śachīnandana-vandanā

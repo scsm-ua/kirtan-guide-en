@@ -1,6 +1,7 @@
 ---
 page: 333
 first_line: naumi śrī-gurupādābjaṁ
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
 # Praṇati Daśakam

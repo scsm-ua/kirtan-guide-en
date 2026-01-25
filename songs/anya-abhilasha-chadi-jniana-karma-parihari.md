@@ -1,6 +1,7 @@
 ---
 page: 211
 first_line: anya-abhilāṣa chāḍi jñāna karma parihari
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Anya-abhilāṣa chāḍi

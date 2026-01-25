@@ -1,6 +1,7 @@
 ---
 page: 191
 first_line: sarvasva tomāra, charaṇe sa̐piyā
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Sarvasva tomāra

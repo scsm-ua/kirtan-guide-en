@@ -1,6 +1,7 @@
 ---
 page: 248
 first_line: janama saphala tā’ra, kṛṣṇa-daraśana jā’ra
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Rūpa-Kīrtan

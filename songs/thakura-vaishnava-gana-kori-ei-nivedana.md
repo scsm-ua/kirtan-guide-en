@@ -1,6 +1,7 @@
 ---
 page: 64
 first_line: ṭhākura vaiṣṇava-gaṇa kori ei nivedana
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Ṭhākura-vaiṣṇava-gaṇa

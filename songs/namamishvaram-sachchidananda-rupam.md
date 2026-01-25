@@ -1,6 +1,7 @@
 ---
 page: 272
 first_line: namāmīśvaraṁ sachchidānanda rūpaṁ
+author: Śrī Satyavrat Muni
 ---
 
 # Śrī Śrī Dāmodarāṣṭakam

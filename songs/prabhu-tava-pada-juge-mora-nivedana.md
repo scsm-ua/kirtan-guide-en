@@ -1,6 +1,7 @@
 ---
 page: 222
 first_line: prabhu tava pada-juge mora nivedana
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Śikṣāṣṭakam

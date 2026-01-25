@@ -1,6 +1,7 @@
 ---
 page: 147
 first_line: aruṇa basane sonara sūraja
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Śrī Gaurasundarer

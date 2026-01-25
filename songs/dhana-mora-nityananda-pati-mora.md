@@ -1,6 +1,7 @@
 ---
 page: 129
 first_line: dhana mora nityānanda pati mora
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # Sva-Niṣṭha

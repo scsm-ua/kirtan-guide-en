@@ -1,6 +1,7 @@
 ---
 page: 146
 first_line: ‘gaurāṅga’ bolite hobe pulaka-śorīra
+author: Śrīla Narottam Dās Ṭhākur
 ---
 
 # ‘Gaurāṅga’ bolite habe

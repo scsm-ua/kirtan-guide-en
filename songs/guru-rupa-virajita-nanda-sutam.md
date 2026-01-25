@@ -1,6 +1,7 @@
 ---
 page: 329
 first_line: guru-rūpa-virājita-nanda-sutaṁ
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Gaurahari-Kusuma-Stavāṣṭakam

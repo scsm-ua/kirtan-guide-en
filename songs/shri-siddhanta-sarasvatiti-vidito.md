@@ -1,6 +1,7 @@
 ---
 page: 14
 first_line: śrī-siddhānta-sarasvatīti vidito
+author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
 ---
 
 # Bhagavān Śrīla Bhakti Siddhānta Saraswatī Ṭhākur

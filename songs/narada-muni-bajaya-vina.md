@@ -1,6 +1,7 @@
 ---
 page: 160
 first_line: nārada muni, bājāya vīṇā
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Nāmāṣṭakam 8

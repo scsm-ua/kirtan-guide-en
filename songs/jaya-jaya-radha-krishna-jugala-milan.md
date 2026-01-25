@@ -1,6 +1,7 @@
 ---
 page: 244
 first_line: jaya jaya rādhā-kṛṣṇa jugala-milan
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Śrī Jugala-ārati

@@ -1,6 +1,7 @@
 ---
 page: 53
 first_line: udilo aruṇa pūraba-bhāge
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Aruṇodoya-kīrtan

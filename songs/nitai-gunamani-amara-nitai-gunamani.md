@@ -1,6 +1,7 @@
 ---
 page: 130
 first_line: nitāi guṇamaṇi āmāra nitāi guṇamaṇi
+author: Śrīla Lochan Dās Ṭhākur
 ---
 
 # Nitāi guṇamaṇi āmāra

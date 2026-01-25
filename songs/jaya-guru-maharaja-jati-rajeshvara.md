@@ -1,6 +1,7 @@
 ---
 page: 45
 first_line: jaya ‘guru-mahārāja’ jati-rājeśvara
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 ---
 
 # Śrī Guru Ārati-stuti

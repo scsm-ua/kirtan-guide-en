@@ -1,6 +1,7 @@
 ---
 page: 200
 first_line: gopīnāth, mama nivedana śuno
+author: Śrīla Bhakti Vinod Ṭhākur
 ---
 
 # Nivedana
