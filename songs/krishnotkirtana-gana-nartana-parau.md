@@ -11,7 +11,7 @@ author: Śrīla Śrīnivās Āchārya
 #### 1
 
     kṛṣṇotkīrtana-gāna-nartana-parau
-    premāmṛtāmbho-nidhī
+        premāmṛtāmbho-nidhī
     dhīrādhīra-janapriyau priya-karau
         nirmatsarau pūjitau
     śrī-chaitanya-kṛpā-bharau bhuvi bhuvo
@@ -76,7 +76,7 @@ I offer my respectful obeisances unto the Six Goswāmīs, namely Śrī Rūpa Gos
 #### 6
 
     saṅkhyā-pūrvaka-nāma-gāna-natibhiḥ
-    kālāvasānī-kṛtau
+        kālāvasānī-kṛtau
     nidrāhāra-vihārakādi-vijitau
         chātyanta-dīnau cha yau
     rādhā-kṛṣṇa-guṇa-smṛter madhurimā-
