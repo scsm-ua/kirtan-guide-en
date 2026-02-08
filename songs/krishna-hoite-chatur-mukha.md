@@ -105,5 +105,5 @@ The nondifferent personality and embodiment of bhakti-siddhānta as well as Śr�
     ei paramparā dhana    sabe gaura-nijajana
         tā̐dera uchiṣṭe mora kāma
 
-He who is a very dear disciple of that Śrīla Śrīdhar Dev-Goswāmī Mahārāj, and who is establishing his divine conception, and who is fulfilling his desire continuously, he is Śrīla Bhakti Sundar Govinda Dev-Goswāmī. This is our grand preceptorial line and all of them are very dear to Śrī Chaitanya Mahāprabhu. My sustenance is their remn ∂ ants alone.
+He who is a very dear disciple of that Śrīla Śrīdhar Dev-Goswāmī Mahārāj, and who is establishing his divine conception, and who is fulfilling his desire continuously, he is Śrīla Bhakti Sundar Govinda Dev-Goswāmī. This is our grand preceptorial line and all of them are very dear to Śrī Chaitanya Mahāprabhu. My sustenance is their remnants alone.
 
