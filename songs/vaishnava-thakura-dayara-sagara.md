@@ -1,5 +1,4 @@
 ---
-verse parentheses: non bold
 page: 84
 first_line: (ohe) vaiṣṇava ṭhākura, dayāra sāgara
 author: Śrīla Bhakti Vinod Ṭhākur
