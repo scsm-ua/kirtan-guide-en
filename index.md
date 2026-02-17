@@ -1,5 +1,6 @@
 - [āchārya-varyaṁ gaura-dhāma-niṣṭhaṁ](songs/acharya-varyam-gaura-dhama-nishtham.md)
 - [akrodha paramānanda](songs/akrodha-paramananda.md)
+- [āmi guru-dāsa—nahi anya](songs/ami-guru-dasa-nahi-anya.md)
 - [anya-abhilāṣa chāḍi jñāna karma parihari](songs/anya-abhilasha-chadi-jniana-karma-parihari.md)
 - [anādi karama-phole](songs/anadi-karama-phole.md)
 - [aparādha-phole mama](songs/aparadha-phole-mama.md)

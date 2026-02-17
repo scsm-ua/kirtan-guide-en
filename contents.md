@@ -205,3 +205,4 @@
 - [Śrī Guru-Praśastiḥ](songs/bhagyadhishia-tvadiyo-vimala-sukhamayah.md)
 - [Praṇati-Pañchakam](songs/nava-nalina-ganjitam-kusuma-dala.md)
 - [Māyā Duratyayā](songs/maha-bhaya-shiankula-e-bhava-tarangini.md)
+- [Svarūpodbodhana](songs/ami-guru-dasa-nahi-anya.md)
