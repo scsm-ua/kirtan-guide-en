@@ -27,6 +27,8 @@ And at last the soul awakens to its real inner treasure — a life of love with 
 
 All phases of the self of which we may conceive are fully satisfied and purified, and at last conquered by the all-auspicious influence of the Holy Name of Krishna.
 
+*Illumination in the book: [The Golden Volcano of Divine Love. Part II Śikṣāṣṭakam: The Holy Name of Kṛṣṇa](https://krishnasearch.com/#/book/en-GoldenVolcanoofDivineLove?c=12&p=12)*
+
 #### 1
 
     pīta-varaṇa kali-pāvana gorā
