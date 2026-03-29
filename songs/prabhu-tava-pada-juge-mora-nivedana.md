@@ -19,6 +19,8 @@ The fourth verse of the Śrī Śikṣāṣṭakam is as follows:
 
 “Oh Lord, I have no desires to accumulate wealth, followers, beautiful women, or salvation. My only prayer is for Your causeless devotional service, birth after birth.”
 
+*Illumination in the book: [The Golden Volcano of Divine Love. Part II Śikṣāṣṭakam: Unalloyed Devotion](https://krishnasearch.com/#/book/en-GoldenVolcanoofDivineLove?c=15&p=8).*
+
 #### 1
 
     prabhu tava pada-juge mora nivedana
