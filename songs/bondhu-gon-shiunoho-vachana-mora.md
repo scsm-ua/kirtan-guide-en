@@ -19,6 +19,8 @@ The eighth verse of the Śrī Śikṣāṣṭakam is as follows:
 
 “Krishna may embrace me in love or trample me under His feet. He may break my heart by hiding Himself from me. Let that debauchee do whatever He likes, but He will always be the only Lord of my life.”
 
+*Illumination in the book: [The Golden Volcano of Divine Love. Part II Śikṣāṣṭakam: Union in Separation](https://krishnasearch.com/#/book/en-GoldenVolcanoofDivineLove?c=19&p=8).*
+
 #### 1
 
     bondhu-goṇ!    śunoho vachana mora
