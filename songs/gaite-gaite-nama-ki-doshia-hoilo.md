@@ -19,6 +19,8 @@ The seventh verse of the Śrī Śikṣāṣṭakam is as follows:
 
 “Oh Govinda! Without You, the world is empty. Tears are flooding my eyes like rain, and a moment seems like forever.”
 
+*Illumination in the book: [The Golden Volcano of Divine Love. Part II Śikṣāṣṭakam: Forever Without You](https://krishnasearch.com/#/book/en-GoldenVolcanoofDivineLove?c=18&p=8).*
+
 #### 1
 
     gāite gāite nāma ki dośā hoilo
