@@ -19,6 +19,8 @@ The sixth verse of the Śrī Śikṣāṣṭakam is as follows:
 
 “Oh Lord, when will tears flow from my eyes like waves, And my voice tremble in ecstasy? When will the hairs of my body stand on end while chanting Your Holy Name?”
 
+*Illumination in the book: [The Golden Volcano of Divine Love. Part II Śikṣāṣṭakam: Hankering for Perfection](https://krishnasearch.com/#/book/en-GoldenVolcanoofDivineLove?c=17&p=8).*
+
 #### 1
 
     aparādha-phole mama    chitta bhela vajra sama

@@ -19,6 +19,8 @@ The second verse of the Śrī Śikṣāṣṭakam is as follows:
 
 “Oh my Lord, Your Holy Name bestows auspiciousness upon all. And You have unlimited Names such as Krishna and Govinda by which You reveal Yourself. In Your many Holy Names You have kindly invested all Your transcendental potency. And in chanting these Names, there are no strict rules concerning time or place. Out of Your causless mercy, You have descended in the form of divine sound, but my great misfortune is that I have no love for Your Holy Name.”
 
+*Illumination in the book: [The Golden Volcano of Divine Love. Part II Śikṣāṣṭakam: Unlimited Names of God](https://krishnasearch.com/#/book/en-GoldenVolcanoofDivineLove?c=13&p=10).*
+
 #### 1
 
     tuhu̐ dayā-sāgara tārayite prāṇī

@@ -19,6 +19,8 @@ The third verse of the Śrī Śikṣāṣṭakam is as follows:
 
 One who is humbler than a blade of grass, more forbearing than a tree who gives due honour to others without desiring it for himself is qualified to always chant the Holy Name of Krishna.
 
+*Illumination in the book: [The Golden Volcano of Divine Love. Part II Śikṣāṣṭakam: Humbler Than a Blade of Grass](https://krishnasearch.com/#/book/en-GoldenVolcanoofDivineLove?c=14&p=8).*
+
 #### 1
 
     śrī-kṛṣṇa-kīrtane jodi mānasa tohāra
