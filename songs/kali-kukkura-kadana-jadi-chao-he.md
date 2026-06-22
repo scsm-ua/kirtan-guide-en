@@ -14,7 +14,7 @@ author: Śrīla Bhakti Vinod Ṭhākur
     kali-yuga-pāvana    kali-bhaya-nāśana,
         śrī-śachī-nandana gāo he
 
-> **kali** — Kali Yuga; **kukkura** — dog; **kadana** — tame; **jadi** — if; **chāo** — you want; **he** — hey!; **kali** — Kali; **yuga** — Yuga; **pāvana** — purifier; **kali** — Kali Yuga; **bhaya** — fear; **nāśana** — destroyer; **śrī** — Śrī; **śachī** — Śachī's; **nandana** — son; **gāo** — chant; **he** — hey!
+> **kali** — Kali Yuga; **kukkura** — dog; **kadana** — tame; **jadi** — if; **chāo** — you want; **he** — hey; **kaliyuga** — Kali Yuga; **pāvana** — purifier; **kali** — Kali Yuga; **bhaya** — fear; **nāśana** — destroyer; **śrī śachī** — Śrī Śachī's; **nandana** — son; **gāo** — chant; **he** — hey.
 
 Oh mind, you are like a miserable dog of *Kali-yuga*! If you want deliverance, then sing the Holy Name of the son of Śachī, for He is the saviour and destroyer of fear in this dark age of Kali.
 
@@ -36,7 +36,7 @@ He is the transcendental cupid of Gadādhara, the life and soul of Nityānanda P
     gṛhī-jana-śikṣaka    nyāsi-kula-nāyaka,
         mādhava rādhā-bhāva-pūra
 
-> **nadīyā** — Nadia; **śaśadhara** — moon; **māyāpura** — Māyāpur; **īśvara** — Lord; **nāma** — Holy Name; **prabartana** — inaugurator; **śūra** — hero; **gṛhī** — householder; **jana** — people; **śikṣaka** — teacher; **nyāsi** — sannyāsī; **kula** — group; **nāyaka** — leader; **mādhava** — Mādhava; **rādhā** — Rādhā; **bhāva** — mood; **pūra** — filled.
+> **nadīyā** — Nadia; **śaśadhara** — moon; **māyāpura** — Māyāpur; **īśvara** — Lord; **nāma** — Holy Name; **prabartana** — inaugurator; **śūra** — hero; **gṛhī** — householder; **jana** — people; **śikṣaka** — teacher; **nyāsi** — sannyasi; **kula** — group; **nāyaka** — leader; **mādhava** — Mādhava; **rādhā** — Rādhā; **bhāva** — mood; **pūra** — filed.
 
 He is the moon of Nadia, the Lord of Māyāpur, and heroic saviour who inaugurated the chanting of the Holy Name of Krishna. He is the teacher of all householders and the commander-in-chief of all *sannyāsīs*. Śrī Chaitanya Mahāprabhu is Krishna, filled with the ecstatic heart’s sentiment of Śrīmatī Rādhārāṇī.
 
