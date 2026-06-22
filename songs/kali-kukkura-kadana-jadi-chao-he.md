@@ -36,7 +36,7 @@ He is the transcendental cupid of Gadādhara, the life and soul of Nityānanda P
     gṛhī-jana-śikṣaka    nyāsi-kula-nāyaka,
         mādhava rādhā-bhāva-pūra
 
-> **nadīyā** — Nadia; **śaśadhara** — moon; **māyāpura** — Māyāpur; **īśvara** — Lord; **nāma** — Holy Name; **prabartana** — inaugurator; **śūra** — hero; **gṛhī** — householder; **jana** — people; **śikṣaka** — teacher; **nyāsi** — sannyasi; **kula** — group; **nāyaka** — leader; **mādhava** — Mādhava; **rādhā** — Rādhā; **bhāva** — mood; **pūra** — filed.
+> **nadīyā** — Nadia; **śaśadhara** — moon; **māyāpura** — Māyāpur; **īśvara** — Lord; **nāma** — Holy Name; **prabartana** — inaugurator; **śūra** — hero; **gṛhī** — householder; **jana** — people; **śikṣaka** — teacher; **nyāsi** — sannyasi; **kula** — group; **nāyaka** — leader; **mādhava** — Mādhava; **rādhā** — Rādhā; **bhāva** — mood; **pūra** — filled.
 
 He is the moon of Nadia, the Lord of Māyāpur, and heroic saviour who inaugurated the chanting of the Holy Name of Krishna. He is the teacher of all householders and the commander-in-chief of all *sannyāsīs*. Śrī Chaitanya Mahāprabhu is Krishna, filled with the ecstatic heart’s sentiment of Śrīmatī Rādhārāṇī.
 
