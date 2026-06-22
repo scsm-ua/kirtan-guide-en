@@ -14,7 +14,7 @@ author: Śrīla Bhakti Vinod Ṭhākur
     kali-yuga-pāvana    kali-bhaya-nāśana,
         śrī-śachī-nandana gāo he
 
-> **kali** — Kali Yuga; **kukkura** — dog; **kadana** — tame; **jadi** — if; **chāo** — you want; **he** — hey; **kaliyuga** — Kali Yuga; **pāvana** — purifier; **kali** — Kali Yuga; **bhaya** — fear; **nāśana** — destroyer; **śrī śachī** — Śrī Śachī's; **nandana** — son; **gāo** — chant; **he** — hey.
+> **kali** — Kali Yuga; **kukkura** — dog; **kadana** — tame; **jadi** — if; **chāo** — you want; **he** — hey; **kali-yuga** — Kali Yuga; **pāvana** — purifier; **kali** — Kali Yuga; **bhaya** — fear; **nāśana** — destroyer; **śrī śachī** — Śrī Śachī's; **nandana** — son; **gāo** — chant; **he** — hey.
 
 Oh mind, you are like a miserable dog of *Kali-yuga*! If you want deliverance, then sing the Holy Name of the son of Śachī, for He is the saviour and destroyer of fear in this dark age of Kali.
 
