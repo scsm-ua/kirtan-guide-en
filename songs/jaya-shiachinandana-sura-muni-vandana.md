@@ -26,7 +26,7 @@ All glories to Śrī Krishna Chaitanya Mahāprabhu, the son of Śachī Devī. Gr
     jaya lakṣmī-viṣṇupriyā viśvambhara priya-hiyā,
         jaya priya kiṅkara īśāna
 
-> **nayana** — eyes; **purandara** — king; **viśvarūpa** — Viśvarūp; **snehadhara** — who has affection; **viśvambhara** — universe maintainer; **viśvera** — universe of; **kalyāṇa** — good fortune; **jaya** — All glory; **lakṣmī** — Lakşmi Priyā; **viṣṇupriyā** — Vişņu Priyā; **viśvambhara** — Viśvambhar; **priya** — dear; **hiyā** — heart!; **jaya** — All glory; **priya** — dear; **kiṅkara** — servant; **īśāna** — Iśān.
+> **nayana** — eyes; **purandara** — king; **viśvarūpa** — Viśvarūp; **snehadhara** — who has affection; **viśvambhara** — universe maintainer; **viśvera** — universe of; **kalyāṇa** — good fortune; **jaya** — All glory; **lakṣmī** — Lakṣmī Priyā; **viṣṇupriyā** — Viṣṇu Priyā; **viśvambhara** — Viśvambhar; **priya** — dear; **hiyā** — heart!; **jaya** — All glory; **priya** — dear; **kiṅkara** — servant; **īśāna** — Īśān.
 
 Śrī Chaitanya delights all eyes with His charming beauty. He is the most dearly beloved Lord of all and the intimate brother of Viśvarūp. He brings the highest auspiciousness to everyone, for He floods the entire universe with the nectar of love of Godhead and thus saves all living beings. All glories to Lakṣmī Priyā and Viṣṇu Priyā Devī, who are very dear to Śrī Nimāi Paṇḍit. All glories to Their family servant, Īśāna.
 
@@ -48,6 +48,6 @@ All glories to Sītā Ṭhākurāṇī and Śrī Advaita Āchārya, all glories 
     vandi savākāra pāya adhamere kṛpā hoy,
         bhakti sapārṣada-prabhupād
 
-> **murāri** — Murāri; **mukunda** — Mukunda; **jay** — All glory; **premanidhi** — Premanidhi; **mahāśaya** — magnanimous (Pundarika Vidyanidhi); **jaya** — Glory; **jata** — all; **prabhu** — Lord; **pāriṣad** — associates; **vandi** — I bow; **sabākāra** — to everone's; **pāya** — feet; **adhamere** — fallen soul; **kṛpā** — mercy; **hoy** — happens; **bhakti** — devotion; **sapārṣada** — with associates; **prabhupād** — Śrīla Prabhupāda (Śrīla B.S. Saraswati Thākur).
+> **murāri** — Murāri; **mukunda** — Mukunda; **jay** — All glory; **premanidhi** — Premanidhi; **mahāśaya** — magnanimous (Pundarika Vidyanidhi); **jaya** — Glory; **jata** — all; **prabhu** — Lord; **pāriṣad** — associates; **vandi** — I bow; **savākāra** — to everone's; **pāya** — feet; **adhamere** — fallen soul; **kṛpā** — mercy; **hoy** — happens; **bhakti** — devotion; **sapārṣada** — with associates; **prabhupād** — Śrīla Prabhupāda (Śrīla B.S. Saraswati Thākur).
 
 All glories to Murāri Gupta, and all glories to Mukunda Datta. All glories to all the other eternal associates of Śrī Chaitanya Mahāprabhu. By singing the glories of Śrīla Prabhupād and all those great souls who are eternal associates of Śrī Chaitanya Mahāprabhu, even the lowest of men can obtain the highest treasure of love.

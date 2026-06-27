@@ -25,7 +25,7 @@ author: Śrīla Bhakti Vinod Ṭhākur
     vipina-purandara    navīna nāgara-vara,
         vaṁśī-badana suvāsā
 
-> **amala** — pure; **hari** — Hari; **nāma** — Name; **amiya** — nectar eternal; **vilāsā** — play; **vipina** — forest; **purandara** — lord, hero; **navīna** — youthful; **nāgara** — gallant lover; **vara** — the best; **vaṁśī** — flute; **badana** — playing; **suvāsā** — beautifully dressed.
+> **amala** — pure; **hari** — Hari; **nām** — Name; **amiya** — nectar eternal; **vilāsā** — play; **vipina** — forest; **purandara** — lord, hero; **navīna** — youthful; **nāgara** — gallant lover; **vara** — the best; **vaṁśī** — flute; **badana** — playing; **suvāsā** — beautifully dressed.
 
 The Holy Names of Krishna are spotless and full of sweetness and beauty. Krishna is the king of the forest of Vṛndāvan. He is the ever-fresh youth, an excellent dresser, and the best of lovers. He always plays sweet melodies upon His flute.
 

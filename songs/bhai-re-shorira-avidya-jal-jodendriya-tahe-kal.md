@@ -35,4 +35,4 @@ Oh brothers! Lord Krishna is very merciful—just to control the tongue He has g
     (dayāl nitāi chaitanya bole, preme bhore ḍākare)
         (nitāi gaura haribol)
 
-> **preme** — with love; **bhore** — filled; **ḍākare** — chant!; **dayāl** — merciful; **nitāi** — Nitāi; **chaitanya** — Chaitanya; **bole** — saying; **preme** — with love; **bhore** — filled; **ḍākare** — chant!; **nitāi** — Nitāi; **gaura** — Gaura; **haribol** — chant "Hari!".
+> **preme** — with love; **bhore** — filled; **ḍākare** — chant!; **dayāl** — merciful; **nitāi** — Nitāi; **chaitanya** — Chaitanya; **bole** — chant; **preme** — with love; **bhore** — filled; **ḍākare** — chant!; **nitāi** — Nitāi; **gaura** — Gaura; **haribol** — chant "Hari!".
