@@ -86,8 +86,8 @@ Bestowing his grace upon all souls, he is Hari-*kīrtan* incarnate. As the assoc
 #### 9
 
     śaraṇāgata-kiṅkara-kalpa-taruṁ
-    taru-dhik-kṛta dhīra vadānya
-    varam varadendra-gaṇārchita-divya-padaṁ
+    taru-dhik-kṛta dhīra vadānya varam
+    varadendra-gaṇārchita-divya-padaṁ
     praṇamāmi sadā prabhupāda-padam
 
 Like a wish-fulfilling tree for his surrendered servitors (he fulfills their heart’s aspirations), even a tree is shamed by his magnanimity and forbearance. And great personalities who are competent to confer boons—they, too, worship his lotus feet. I make my obeisance unto him; perpetually do I bow down to the radiance emanating from the toenails of the holy feet of my Divine Master.
