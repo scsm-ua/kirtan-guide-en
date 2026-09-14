@@ -4,7 +4,7 @@ author: Śrīla Rūpa Goswāmī
 first_line: vāñchā-kalpatarubhyas’ cha
 ---
 
-# vāñchā-kalpatarubhyas’ cha
+# Vāñchā-kalpatarubhyas’ cha
 
     vāñchā-kalpa-tarubhyas’ cha
         kṛpā-sindhubhya eva cha
