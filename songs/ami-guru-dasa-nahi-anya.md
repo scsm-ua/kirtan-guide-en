@@ -1,5 +1,6 @@
 ---
 first_line: āmi guru-dāsa—nahi anya
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj 
 ---
 
 # Svarūpodbodhana
