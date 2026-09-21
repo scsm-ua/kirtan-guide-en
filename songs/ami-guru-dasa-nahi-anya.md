@@ -1,11 +1,12 @@
 ---
 first_line: āmi guru-dāsa—nahi anya
+author: Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj 
 ---
 
 # Svarūpodbodhana
 # Awakening the True Self
 
-### Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
+### by Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
 ### Originally published in Sri Gaudiya Darsan:
 ### Volume 1, Issue 4, Tuesday, 15 November 1955
