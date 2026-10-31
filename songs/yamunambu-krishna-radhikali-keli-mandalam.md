@@ -2,6 +2,10 @@
 page: 122
 first_line: yāmunāmbu-kṛṣṇa-rādhikāli-keli-maṇḍalam
 author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+styles:
+  verses:
+    inline:
+      bold: false
 ---
 
 # Śrī Śrī
@@ -94,8 +98,8 @@ I offer my respects unto Śrī Gaurāṅgadev, who rose like a golden moon in Ś
 
 With great joy Śrī Gaurasundar told His dearmost associates Śrī Swarūp Dāmodar and Rāmānanda Rāya that the process of congregationally chanting the Holy Names of Krishna bestows the highest benediction upon the living entities in this age of Kali:
 
-*harṣe prabhu kohena, “śuno svarūpa-rāma-rāya*\
-*nāma saṅkīrtana kalau, parama upāya”*
+    harṣe prabhu kohena, “śuno svarūpa-rāma-rāya
+    nāma saṅkīrtana kalau, parama upāya”
 
 In His famous composition Śrī Śikṣāṣṭakam also, Lord Gaurāṅga has placed the chanting of Lord Krishna’s Names on the topmost level of importance. The Supreme Lord further taught that chanting Lord Krishna’s Names in pure love of Godhead perfectly nourishes and fully satisfies all the living entities in the universe. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishnaprema .
 

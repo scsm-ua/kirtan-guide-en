@@ -1,5 +1,4 @@
 ---
-verse parentheses: non bold
 page: 73
 first_line: (kiba) jaya jaya gaurāchā̐der ārotiko śobhā
 author: Śrīla Bhakti Vinod Ṭhākur

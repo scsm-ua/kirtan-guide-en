@@ -2,6 +2,10 @@
 page: 100
 first_line: dhvasta-sārvvabhauma-vāda-navya-tarka-śāṅkaraṁ
 author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+styles:
+  verses:
+    inline:
+      bold: false
 ---
 
 # Śrī Śrī
@@ -24,8 +28,8 @@ The grand intellectual Sārvabhauma tried his level best t oestablish the impers
 
 This was shown in the Lord’s explanation of the Upaniṣads, where it is stated:
 
-*apāṇipādo javano grahitā*\
-*paśyatyachakṣuḥ sa śṛṇotyakarṇaḥ*
+    apāṇipādo javano grahitā
+    paśyatyachakṣuḥ sa śṛṇotyakarṇaḥ
 
 “The Lord has no hands or legs, yet He walks and touches. The Lord has no eyes or ears, yet He sees and hears.”
 
@@ -112,10 +116,10 @@ While travelling in South India, Lord Gaurasundar discovered the famous literatu
 
 Surrounded by innumerable devotees, Lord Gaurasundar displayed His divine and wonderful dancing figure in front of the Ratha Yātrā cart while performing congregational chanting of the Lord’s Holy Names. The Lord’s personality totally charmed the hearts of Pratāparudra Mahārāj, the assembled pilgrims, and all the other dear friends of the King. The Lord also revealed the inner purport of Lord Jagannāth’s pastime of riding the cart to the Guṇḍichā temple when He mentioned the verse by Śrīla Rūpa Goswāmī:
 
-*priyaḥ so ’yam kṛṣṇaḥ saha-chari kuru-kṣetra-militas*\
-*tathāhaṁ sā rādhā tad idam ubhayoḥ saṅgama sukham*\
-*tathāpy antaḥ-khelan-madhura-muralī-pañchama-juṣe*\
-*mano me kālindī-pulina-vipināya spṛhayati*
+    priyaḥ so ’yam kṛṣṇaḥ saha-chari kuru-kṣetra-militas
+    tathāhaṁ sā rādhā tad idam ubhayoḥ saṅgama sukham
+    tathāpy antaḥ-khelan-madhura-muralī-pañchama-juṣe
+    mano me kālindī-pulina-vipināya spṛhayati
 
 “O My dear friend, now I am at last reunited with My most beloved Krishna in Kurukṣetra. I am the same Rādhārāṇī, and He is the same Krishna. We are enjoying Our meeting, but still I wish to return to the banks of the Kālindī, where I could hear the sweet melody of His flute sounding the fifth note beneath the trees of the Vṛndāvan forest.” I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
 

@@ -24,8 +24,3 @@ author: Śrīla Vṛndāvan Dās Ṭhākur
 
 *(Śrī Chaitanya-bhāgavat Madhya 23.77-78, 28.28)*
 
-
-[Nitai dasa](https://soundcloud.com/scsmission/prabhu-kohe-sung-by-nitai-dasa)
-
-[Sadhu Priya Prabhu](https://soundcloud.com/huron/prabhu-kohe-kohilan)
-

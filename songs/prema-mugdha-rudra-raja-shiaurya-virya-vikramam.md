@@ -2,6 +2,10 @@
 page: 106
 first_line: prema-mugdha-rudra-rāja-śaurya-vīrya-vikramaṁ
 author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+styles:
+  verses:
+    inline:
+      bold: false
 ---
 
 # Śrī Śrī
@@ -85,10 +89,10 @@ Lord Gaurasundar showed great honour towards the Deities along the Ganges-bank i
 
 Lord Chaitanya stated that the mood of deep separation that Mādhavendra Purī was able to taste, as depicted in the following beautiful verse first spoken by Śrīmatī Rādhārāṇī, is the zenith point and desirable object of pure adoration:
 
-*ayi dīna-dayārdra nātha he*\
-*mathurā-nātha kadāvalokyase*\
-*hṛdayaṁ tvad-aloka-kātaraṁ*\
-*dayita bhrāmyati kiṁ karomy aham*
+    ayi dīna-dayārdra nātha he
+    mathurā-nātha kadāvalokyase
+    hṛdayaṁ tvad-aloka-kātaraṁ
+    dayita bhrāmyati kiṁ karomy aham
 
 “O my Lord! O most gracious master! O master of Mathurā! When will I see You again? Because of my not seeing You, my agitated heart has become unsteady. O most beloved one, what shall I do now?” After the Lord entered into Vraja, the background stage where Pastimes of pure love are enacted, He became overwhelmed to His heart’s full satisfaction. The Lord was charmed to see the beautiful gardens and forest groves that served as His playground for spiritual Pastimes in a previous era. While visiting the twelve forests of Vṛndāvan, the Lord exhibited various different dealings with the cowherd boys and maidens. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
 

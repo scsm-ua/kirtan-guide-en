@@ -100,3 +100,4 @@ Everyone will identify with the same identity, realise their immortal self, wors
     āmi guru-dāsa nahi anya
 
 I am a servant of Guru—nothing else.
+

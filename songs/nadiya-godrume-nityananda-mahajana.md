@@ -1,5 +1,4 @@
 ---
-verse parentheses: non bold
 page: 127
 first_line: nadīyā-godrume nityānanda mahājana
 author: Śrīla Bhakti Vinod Ṭhākur

@@ -70,6 +70,3 @@ In danger or success, good fortune or disaster, let me remain equipoised. And le
 
 Whether I live as bird or beast, in heaven or in hell, let the humble Bhakti Vinod always cherish devotion to You in his heart of hearts.
 
-
-[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/prabhu-tava-pada-juge)
-

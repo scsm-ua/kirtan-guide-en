@@ -7,7 +7,7 @@ author: Śrīla Narottam Dās Ṭhākur
 # Sāvaraṇa-Śrī-Gaura-pāda-padme
 # Prārthanā
 
-### by Śrīla Narottam Dās Ṭhākur
+### Verses 1 to 7 by Śrīla Narottam Dās Ṭhākur
 
 #### 1
 
@@ -60,11 +60,8 @@ Please grant Your blessings Oh Lord Śrī Śrīnivās Āchārya;  for  the  comp
 
 #### 8
 
-    (dayā kara prabhupāda śrī gaura prakāśa)
-    (tava jana kṛpā māge ei adhama dāsa)
+    dayā kara prabhupāda śrī gaura prakāśa
+    tava jana kṛpā māge ei adhama dāsa
 
-Kindly give Your Grace, Śrīla Prabhupād Saraswatī Ṭhākur, manifestation of Śrī Gaura. This fallen servant begs the mercy of your associates.
-
-
-[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-savarana-sri-gaura-pada-padme-sri-krishna-chaitanya-prabhu-doya-koro-more)
+Kindly give Your Grace, Śrīla Prabhupād Saraswatī Ṭhākur, manifestation of Śrī Gaura. This fallen servant begs the mercy of your associates. *(Verse by Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj)*
 
