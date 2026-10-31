@@ -2,7 +2,14 @@
   "meta": {
     "page": 111,
     "first_line": "prema-mugdha-nṛtya-kīrtanākulāriṭāntikaṁ",
-    "author": "Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj"
+    "author": "Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj",
+    "styles": {
+      "verses": {
+        "inline": {
+          "bold": false
+        }
+      }
+    }
   },
   "title": [
     "Śrī Śrī",
@@ -26,11 +33,17 @@
         "prema-dhāma-devam eva naumi gaura-sundaram"
       ],
       "translation": [
-        "Surcharged with the confusing dictations of pure love of God, Lord Gaurasundar, dancing in ecstasy, anxiously approached the sacred place of Rādhā Kuṇḍa, which was unmanifest at that time. The Lord hastily took bath in that flooded paddy field, sanctified the water, and revealed it to be Śrī Rādhā Kuṇḍa. In deep humility, the Lord began to carefully recite verses from the Scriptures depicting Śrī Rādhā Kuṇḍa as the divine embodiment of pure love.",
-        "*yathā rādhā priyā viṣṇos*\\",
-        "*tasyāḥ kuṇḍaṁ priyaṁ tathā*\\",
-        "*sarva gopīṣu saivaikā*\\",
-        "*viṣṇor-atyanta vallabhā*",
+        "Surcharged with the confusing dictations of pure love of God, Lord Gaurasundar, dancing in ecstasy, anxiously approached the sacred place of Rādhā Kuṇḍa, which was unmanifest at that time. The Lord hastily took bath in that flooded paddy field, sanctified the water, and revealed it to be Śrī Rādhā Kuṇḍa. In deep humility, the Lord began to carefully recite verses from the Scriptures depicting Śrī Rādhā Kuṇḍa as the divine embodiment of pure love."
+      ]
+    },
+    {
+      "text": [
+        "yathā rādhā priyā viṣṇos",
+        "tasyāḥ kuṇḍaṁ priyaṁ tathā",
+        "sarva gopīṣu saivaikā",
+        "viṣṇor-atyanta vallabhā"
+      ],
+      "translation": [
         "“Just as Śrī Rādhā is very dear to Lord Krishna, similarly Her divine pond, Śrī Rādhā Kuṇḍa, is dear to the Lord. Of all the cowherd maidens, She is the dearmost consort to Lord Krishna.” I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*."
       ]
     },
@@ -55,11 +68,17 @@
         "prema-dhāma-devam eva naumi gaura-sundaram"
       ],
       "translation": [
-        "Lord Gaurāṅga mentioned a witty conversation that was carried on between a parrot and his mate. In their talk, Lord Krishna, the transcendental Cupid, is described to be illusioned due to His deep feelings of separation from Śrī Rādhā.",
-        "*rādhā-saṅge yadā bhāti*\\",
-        "*tadā ‘madana-mohanaḥ’*\\",
-        "*ayathā viśva-moho ’pi*\\",
-        "*svayaṁ ‘madana-mohitaḥ’*",
+        "Lord Gaurāṅga mentioned a witty conversation that was carried on between a parrot and his mate. In their talk, Lord Krishna, the transcendental Cupid, is described to be illusioned due to His deep feelings of separation from Śrī Rādhā."
+      ]
+    },
+    {
+      "text": [
+        "rādhā-saṅge yadā bhāti",
+        "tadā ‘madana-mohanaḥ’",
+        "ayathā viśva-moho ’pi",
+        "svayaṁ ‘madana-mohitaḥ’"
+      ],
+      "translation": [
         "The female parrot said, “When Lord Krishna is with Rādhārāṇī, He is the enchanter of Cupid; otherwise, when He is alone, He Himself is enchanted by amorous feelings, even though He enchants the whole universe.” By this pastime, Lord Gaurāṅga charmed the devotees’ hearts by showing that Lord Krishna’s sweetness and charm ultimately lies in the fact that He can be subdued by pure love. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*."
       ]
     },
@@ -120,11 +139,17 @@
         "prema-dhāma-devam eva naumi gaura-sundaram"
       ],
       "translation": [
-        "When Lord Gaurāṅga referred to the verse *brahmeti paramātmeti bhagavān iti śabdyate* in the Śrīmad-Bhāgavatam, He harmoniously accommodated the conception of the nondifferentiated aspect of reality, *brahman*, the ultimate goal of the impersonalists, with the conception of the localized aspect of reality, *paramātma*, the goal of the mystic perfectionists. The Lord adjusted these two truths by showing that they are included within and surpassed by the ultimate conception of the nondualistic Absolute Truth, *bhagavān*, who is the primeval principle of reality. When revealing this axiomatic truth in connection with the joyful and confidential nature of the Supreme Lord’s spiritual Pastimes, Lord Gaurāṅga pointed out the divine nature of Vraja, which is existing above the Vaikuṇṭha planets.",
-        "*vaikuṇṭhāj janito varā madhu-purī tatrāpi rāsotsavād*\\",
-        "*vṛndāraṇyam udāra-pāṇi-ramaṇāt tatrāpi govardhanaḥ*\\",
-        "*rādhā-kuṇḍam ihāpi gokula-pateḥ premāmṛtāplāvanāt*\\",
-        "*kuryād asya virājato giri-taṭe sevāṁ vivekī na kaḥ*",
+        "When Lord Gaurāṅga referred to the verse *brahmeti paramātmeti bhagavān iti śabdyate* in the Śrīmad-Bhāgavatam, He harmoniously accommodated the conception of the nondifferentiated aspect of reality, *brahman*, the ultimate goal of the impersonalists, with the conception of the localized aspect of reality, *paramātma*, the goal of the mystic perfectionists. The Lord adjusted these two truths by showing that they are included within and surpassed by the ultimate conception of the nondualistic Absolute Truth, *bhagavān*, who is the primeval principle of reality. When revealing this axiomatic truth in connection with the joyful and confidential nature of the Supreme Lord’s spiritual Pastimes, Lord Gaurāṅga pointed out the divine nature of Vraja, which is existing above the Vaikuṇṭha planets."
+      ]
+    },
+    {
+      "text": [
+        "vaikuṇṭhāj janito varā madhu-purī tatrāpi rāsotsavād",
+        "vṛndāraṇyam udāra-pāṇi-ramaṇāt tatrāpi govardhanaḥ",
+        "rādhā-kuṇḍam ihāpi gokula-pateḥ premāmṛtāplāvanāt",
+        "kuryād asya virājato giri-taṭe sevāṁ vivekī na kaḥ"
+      ],
+      "translation": [
         "“Superior to the spiritual realm of Vaikuṇṭha is Mathurā, where Śrī Krishna first appears. Superior to Mathurā is the Vṛndāvan forest where Krishna enjoyed the *rāsa* dance. Better still is Govardhan Hill, which was the site of even more confidential Pastimes of love. But best of all is Rādhā Kuṇḍa, which is situated at the foot of Govardhan Hill, and holds the supreme position because it is over-flooded with the nectar of the highest kind of divine love. Who, acquainted with the science of devotion, will not aspire for the divine service of Śrīmatī Rādhārāṇī at Rādhā Kuṇḍa?” Initially, Lord Gaurāṅga revealed the nature of pure loving service rendered unto the son of Nanda Mahārāj in the parental relationship. But when considering the flow of dedication’s sweet mellows, Lord Gaurāṅga described the ultimate aspect of the Supreme Lord’s personality to be Śrī Gopījanavallabha, whose divine figure is the unlimited reservoir of all the primary and secondary mellows tasted in pure devotion. Śrī Gaurāṅga also hinted that the joyful and charming *rāsa-līlā* Pastimes are an allconscious reality, none other than the personal potency of Śrīmatī Rādhārāṇī. Such transcendental Pastimes are found within the superexcellent and inconceivable spiritual world, and are the highest conception of spiritual existence, auspiciousness, and beauty. Lord Gaurāṅga suggested this to be the supreme achievable object of the living entities. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*."
       ]
     },
@@ -149,11 +174,17 @@
         "prema-dhāma-devam eva naumi gaura-sundaram"
       ],
       "translation": [
-        "Lord Gaurasundar explained this famous verse of the Śrīmad-Bhāgavatam sixty-one times to Śrīla Sanātan Goswāmī, and later to Prakāśānanda Saraswatī:",
-        "*ātmārāmaś cha munayo*\\",
-        "*nirgranthā apy urukrame*\\",
-        "*kurvanty ahaitukīṁ*\\",
-        "*bhaktim itthaṁ-bhūta guṇo hariḥ*",
+        "Lord Gaurasundar explained this famous verse of the Śrīmad-Bhāgavatam sixty-one times to Śrīla Sanātan Goswāmī, and later to Prakāśānanda Saraswatī:"
+      ]
+    },
+    {
+      "text": [
+        "ātmārāmaś cha munayo",
+        "nirgranthā apy urukrame",
+        "kurvanty ahaitukīṁ",
+        "bhaktim itthaṁ-bhūta guṇo hariḥ"
+      ],
+      "translation": [
         "“Even the liberated souls fully satisfied in the self are irresistibly attracted by the superexcellent qualities of Krishna and surrender to Him with unalloyed devotion.” The Lord separately combined each of the eleven words found in that verse and established that each one is an enormous storehouse of unlimited wealth supporting the conclusion of pure devotion. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*."
       ]
     }
