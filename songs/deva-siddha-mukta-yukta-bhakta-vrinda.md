@@ -2,6 +2,10 @@
 page: 90
 first_line: deva-siddha-mukta-yukta-bhakta-vṛnda
 author: Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj
+styles:
+  verses:
+    inline:
+      bold: false
 ---
 
 # Śrī Śrī
@@ -24,8 +28,8 @@ The universal gods, perfected beings, salvationists, mystic  yogis,  and  exalte
 
 In regard to Lord Chaitanya’s Pastimes, Śrīla Rūpa Goswāmī has mentioned the following verse in his Śrī Chaitanyāṣṭakam:
 
-*sadopāsyaḥ śrīmān dhṛta-manuja-kāyaiḥ praṇayitāṁ*\
-*vahadbhir gīr-vāṇair giriśa-parameṣṭhi-prabhṛtibhiḥ*
+    sadopāsyaḥ śrīmān dhṛta-manuja-kāyaiḥ praṇayitāṁ
+    vahadbhir gīr-vāṇair giriśa-parameṣṭhi-prabhṛtibhiḥ
 
 “The gods, headed by Lord Shiva and Lord Brahmā, accepted the garb of ordinary men in the Pastimes of Śrī Chaitanyadeva in order to eternally worship Him with heartfelt affection.” Śrī Chaitanyadeva is the embodiment of that vast nectarean ocean found in Lord Krishna’s Holy Name, which is none other than Śrī Gaurāṅga’s own pure Name. Śrī Chaitanyadeva is compared to that grand milk ocean which, after being churned, produced nectar. The nectar Mahāprabhu distributes is Lord Krishna’s Holy Names, which extinguish all the miseries of material existence, such as anxieties arising from sinful activities performed in direct opposition to the Lord, and the three-fold sufferings which fuel the grand forest fire that scorches those in search of sense gratification, salvation, and mystic yoga perfections. I offer my obeisances to that beautiful Golden Lord, Gaurāṅga Sundar, the divine form of Krishna-*prema*.
 

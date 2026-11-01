@@ -24,7 +24,7 @@ Oh my Lord, Oh Vaiṣṇava, Ocean of grace, Kindly be gracious to this servitor
     choya sat-saṅga,    deho’ he āmāre,
         bosechi saṅgera āśe
 
-Subjugate the six urges, rectify the six defects, bestow the six good qualities upon this servitor; Please grant me the six kinds of saintly association; I sit at your feet aspiring for that association. *
+Subjugate the six urges, rectify the six defects, bestow the six good qualities upon this servitor; Please grant me the six kinds of saintly association; I sit at your feet aspiring for that association *(see footnote)*.
 
 #### 3
 
@@ -50,7 +50,7 @@ On my own I have no strength to chant the Holy Name in congregation; Kindly be p
 
 Krishna is yours, you can give Him, you have the power to do so; I who am bereft, Calling ‘Krishna, Krishna,’ am running desperately behind you.
 
-* Footnote to verse 2:
+## Footnote to verse 2
 
 The six urges are those of speech, the mind, anger, the tongue, the belly, and the genitals.
 

@@ -43,6 +43,3 @@ Oh Mādhava, although I have not even a sesame seed of devotion for You, Your su
 
 Oh eternal Lord, may the bumblebee of my mind, finding there the most wonderful sweetness, eternally stay in the honey of Your lotus feet, which rebuke the sweetest nectar.
 
-
-[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-kabe-habe-bolo-acapella)
-

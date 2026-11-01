@@ -78,6 +78,3 @@ Absorbing your mind in meditation upon the divine feet of the Spiritual Master a
 
 Desiring the lotus feet of Śrī Guru and the Vaiṣṇavas, Narottam Dās sings the *saṅkīrtan* of the Holy Name.
 
-
-[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/bhakti-lalita-devi-nama-sankirttan-hari-haraye-namah-krishna)
-

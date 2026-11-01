@@ -1,5 +1,4 @@
 ---
-verse parentheses: non bold
 page: 300
 first_line: ‘rādhā-kṛṣṇa’ bol bol bolo re sobāi
 author: Śrīla Bhakti Vinod Ṭhākur

@@ -36,6 +36,3 @@ Oh Krishna holder of the flute, Muralī and lifter of Govardhan Hill! All glorie
 
 Oh Krishna holder of the flute, Muralī and lifter of Govardhan Hill! All glories to you Krishna, dearmost lover of all the cowherd girls of Vṛndāvan and player of the flute Vaṁśī.
 
-
-[Sadhu Priya Prabhu](https://soundcloud.com/huron/mayura-mukuta)
-

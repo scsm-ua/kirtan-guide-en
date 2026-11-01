@@ -1,5 +1,4 @@
 ---
-verse parentheses: non bold
 page: 133
 first_line: ‘dayāl nitāi chaitanya’ bo’le nāch re
 author: Śrīla Bhakti Vinod Ṭhākur

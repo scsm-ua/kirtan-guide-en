@@ -72,6 +72,3 @@ When will my body turn colours and become pale out of ecstasy? When will I lose 
 
 Bhakti Vinod, who is devoid of good intelligence cries, “When will I meet with such a day?”
 
-
-[Bhakti Lalita Devi](https://soundcloud.com/bhakti-lalita-devi/aparadha-phole-mama)
-

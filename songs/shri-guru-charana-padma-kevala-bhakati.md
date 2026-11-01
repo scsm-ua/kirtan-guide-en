@@ -1,5 +1,4 @@
 ---
-verse parentheses: non bold
 page: 80
 first_line: śrī guru charaṇa-padma, kevala-bhakati
 author: Śrīla Narottam Dās Ṭhākur
