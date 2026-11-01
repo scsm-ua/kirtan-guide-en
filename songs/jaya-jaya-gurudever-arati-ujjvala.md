@@ -10,7 +10,7 @@ author: Śrīpād B. A. Paramahaṁsa Mahārāj
 
 ### by Śrīpād B. A. Paramahaṁsa Mahārāj
 
-### translated by Devamoyī Devī Dasī
+### Translated by Devamoyī Devī Dasī
 
 #### 1
 

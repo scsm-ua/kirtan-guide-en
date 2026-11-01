@@ -9,7 +9,6 @@ first_line: hari-nāma mahāmantra sarva-mantra-sāra
 ## The Ten Offences to the Holy Name
 
 ### Bengali poem composed by
-
 ### Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj
 
 #### 1
@@ -38,8 +37,8 @@ His Pastimes, nature, form, also think not separate.
 
 #### 3
 
-    ‘‘guru kṛṣṇa-rūpa hon śāstrera pramāṇe
-    guru-rūpe kṛṣṇa kṛpā kore bhāgyavāne’’
+    “guru kṛṣṇa-rūpa hon śāstrera pramāṇe
+    guru-rūpe kṛṣṇa kṛpā kore bhāgyavāne”
     se gurute martya-buddhi avajñādi tyaji
     iṣṭa-lābha kara, nirantara nāma bhaji
 

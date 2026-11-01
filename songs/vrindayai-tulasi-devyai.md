@@ -4,7 +4,7 @@ no-author: 1
 first_line: vṛndāyai tulasī-devyai
 ---
 
-# vṛndāyai tulasī-devyai
+# Vṛndāyai tulasī-devyai
 
     vṛndāyai tulasī-devyai
         priyāyai keśavasya cha
